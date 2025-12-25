@@ -4,9 +4,7 @@ description: Initiation to enter eternity/timelessness
 
 # 🔥 M: The Suchness of life
 
-###
-
-<figure><img src="../.gitbook/assets/breathtaking_alla_prima_oil_pa (1).jpeg" alt=""><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/breathtaking_alla_prima_oil_pa (1).jpeg" alt="" width="384"><figcaption></figcaption></figure>
 
 ### Surrender
 
