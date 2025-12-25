@@ -4,7 +4,7 @@ description: Sensations
 
 # 🧘‍♂️ Meditation: The Tree of Awareness
 
-<div><figure><img src="../.gitbook/assets/ChatGPT Image Dec 7, 2025, 10_55_17 PM.png" alt=""><figcaption></figcaption></figure> <figure><img src="../.gitbook/assets/ChatGPT Image Dec 7, 2025, 10_56_56 PM.png" alt=""><figcaption></figcaption></figure></div>
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 7, 2025, 10_55_17 PM.png" alt="" width="375"><figcaption></figcaption></figure>
 
 #### Estimated Timing for "The Tree of Awareness"
 
@@ -160,4 +160,24 @@ Feel the whole body as one unified field of sensation. A single, vibrating, livi
 
 Be still and know this body. Rest in this state of full, loving awareness.
 
-<br>
+#### Part 6: The Return
+
+Now, from this place of stillness, allow the sound of my voice to gently guide you back.
+
+Let the focused awareness on the body as a whole begin to soften.
+
+Bring your attention once more to your physical connection with the world around you. Feel the solid, supportive presence of the tree trunk against your back. Feel the texture of the earth beneath you.
+
+Listen to the sounds of nature surrounding you. The rustle of leaves in the wind, the distant call of a bird, the hum of life.
+
+When you feel ready, and not before, begin to introduce some gentle movement into your body. You might slowly wiggle your fingers and your toes, reawakening them. Perhaps a gentle rotation of your ankles and wrists.
+
+Take a deep, conscious breath in, and as you exhale, release it with a soft sigh.
+
+In your own time, whenever you feel complete, slowly and gently allow your eyelids to drift open.
+
+Take a moment. Don't rush to get up. Look at the tree that supported you. Look at the play of light through its leaves. See the world with the fresh, clear eyes of this present moment.
+
+Carry this feeling of still, loving awareness with you as you rise and continue your day.<br>
+
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 7, 2025, 10_56_56 PM.png" alt="" width="375"><figcaption></figcaption></figure>
