@@ -29,7 +29,7 @@
 * [🌲 S: Origin of Trees](journey-3/s-origin-of-trees.md)
 * [🚶 J: Sensory Forest Bathing](journey-3/j-sensory-forest-bathing.md)
 * [🌳 Meeting the Tree Part I: Receiving Power](journey-3/meeting-the-tree-part-i-receiving-power.md)
-* [M: Sensation](journey-3/m-sensation.md)
+* [🧘‍♂️ Meditation: The Tree of Awareness](journey-3/meditation-the-tree-of-awareness.md)
 
 ## Journey 4
 
