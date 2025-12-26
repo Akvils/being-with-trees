@@ -21,13 +21,13 @@
 
 * [🌆 S: Origin of the city](journey-2/s-origin-of-the-city.md)
 * [🏞️ I: Initiation](journey-2/i-initiation.md)
-* [⛰️ J: The First Journey: Knowing the Landscape](journey-2/j-the-first-journey-knowing-the-landscape.md)
+* [⛰️ Journey 1: Knowing the Landscape](journey-2/journey-1-knowing-the-landscape.md)
 * [🧘‍♂️ Meditation: The Inner Refuge](journey-2/meditation-the-inner-refuge.md)
 
 ## Journey 3
 
 * [🌲 S: Origin of Trees](journey-3/s-origin-of-trees.md)
-* [🚶 J: Sensory Forest Bathing](journey-3/j-sensory-forest-bathing.md)
+* [🚶 Journey 2: Sensory Forest Bathing](journey-3/journey-2-sensory-forest-bathing.md)
 * [🌳 Meeting the Tree Part I: Receiving Power](journey-3/meeting-the-tree-part-i-receiving-power.md)
 * [🧘‍♂️ Meditation: The Tree of Awareness](journey-3/m-sensation.md)
 
