@@ -63,7 +63,7 @@
 ## Journey 8
 
 * [🏡 The Burning House](journey-8/the-burning-house.md)
-* [😈 I: Mara: We’re already dead](journey-8/i-mara-were-already-dead.md)
+* [🧘‍♂️ The Architect Meditation: A Guided Journey to Sovereignty](journey-8/the-architect-meditation-a-guided-journey-to-sovereignty.md)
 * [J: Ascension](journey-8/j-ascension.md)
 * [M: Self - That](journey-8/m-self-that.md)
 
