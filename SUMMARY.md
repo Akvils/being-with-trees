@@ -63,7 +63,8 @@
 ## Journey 8
 
 * [🏡 The Burning House](journey-8/the-burning-house.md)
-* [🧘‍♂️ The Architect Meditation: A Guided Journey to Sovereignty](journey-8/the-architect-meditation-a-guided-journey-to-sovereignty.md)
+* [Page](journey-8/page.md)
+* [🧘‍♂️ The Architect Meditation: Journey to Sovereignty](journey-8/the-architect-meditation-journey-to-sovereignty.md)
 * [J: Ascension](journey-8/j-ascension.md)
 * [M: Self - That](journey-8/m-self-that.md)
 
