@@ -44,14 +44,14 @@
 * [S: Original Sin](journey-5/s-original-sin.md)
 * [🧭 I: Internal compass of the mind](journey-5/i-internal-compass-of-the-mind.md)
 * [J: Spiritual](journey-5/j-spiritual.md)
-* [M: Feelings, River of Negative emotions](journey-5/m-feelings-river-of-negative-emotions.md)
+* [M: Feelings, Pain, River of Negative emotions](journey-5/m-feelings-pain-river-of-negative-emotions.md)
 
 ## Journey 6
 
 * [S: War between the spirit of man and woman](journey-6/s-war-between-the-spirit-of-man-and-woman.md)
 * [I: Lust of love, just water](journey-6/i-lust-of-love-just-water.md)
 * [J: Shadow](journey-6/j-shadow.md)
-* [👿 M: Pain](journey-6/m-pain.md)
+* [👿 M: Ego Programs](journey-6/m-ego-programs.md)
 
 ## Journey 7
 
