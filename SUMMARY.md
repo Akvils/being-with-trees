@@ -48,22 +48,21 @@
 
 ## Journey 6
 
-* [S: War between the spirit of man and woman](journey-6/s-war-between-the-spirit-of-man-and-woman.md)
-* [I: Lust of love, just water](journey-6/i-lust-of-love-just-water.md)
-* [J: Shadow](journey-6/j-shadow.md)
+* [👹 S: Secret ritual](journey-6/s-secret-ritual.md)
+* [🌱 I: What is it to be a tree?](journey-6/i-what-is-it-to-be-a-tree.md)
+* [👻 J: Shadow](journey-6/j-shadow.md)
 * [👿 M: Ego Programs](journey-6/m-ego-programs.md)
 
 ## Journey 7
 
-* [👹 S: Secret ritual](journey-7/s-secret-ritual.md)
-* [🌱 I: What is it to be a tree?](journey-7/i-what-is-it-to-be-a-tree.md)
+* [I: Lust of love, just water](journey-7/i-lust-of-love-just-water.md)
+* [👹 Starving the Archons](journey-7/starving-the-archons.md)
 * [💖 -J: Universal Love](journey-7/j-universal-love.md)
 * [🌌 -M: Space, Self Awareness](journey-7/m-space-self-awareness.md)
 
 ## Journey 8
 
 * [🏡 The Burning House](journey-8/the-burning-house.md)
-* [👹 Starving the Archons](journey-8/starving-the-archons.md)
 * [🧘‍♂️ The Architect Meditation: Journey to Sovereignty](journey-8/the-architect-meditation-journey-to-sovereignty.md)
 * [J: Ascension](journey-8/j-ascension.md)
 * [M: Self - That](journey-8/m-self-that.md)
