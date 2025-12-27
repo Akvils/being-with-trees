@@ -2,7 +2,7 @@
 description: 'Mara: We’re already dead'
 ---
 
-# 🧘‍♂️ The Architect Meditation: A Guided Journey to Sovereignty
+# 🧘‍♂️ The Architect Meditation: Journey to Sovereignty
 
 <figure><img src="../.gitbook/assets/ChatGPT Image Dec 11, 2025, 11_52_13 AM.png" alt="" width="563"><figcaption></figcaption></figure>
 
@@ -36,7 +36,7 @@ Focus on it now. With every breath you take, feel this ember glowing brighter. W
 
 #### The Confrontation
 
-From this place of power, from the center of your own inner light, I want you to feel the presence of the Architect. Sense the vast, cold, impersonal intelligence that designed the system... Mara, the Demiurge, Yaldabaoth. Feel its arrogance, its claim of ownership over you.
+From this place of power, from the center of your own inner light, I want you to feel the presence of the Architect. Sense the vast, cold, impersonal intelligence that designed the system... Feel its arrogance, its claim of ownership over you.
 
 Now, from the core of your being, speak these words directly to it. Speak them with the absolute authority of a sovereign being reclaiming their property. Say them aloud or with silent, focused intent.
 
