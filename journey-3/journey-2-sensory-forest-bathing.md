@@ -1,4 +1,4 @@
-# 🚶 J: Sensory Forest Bathing
+# 🚶 Journey 2: Sensory Forest Bathing
 
 <figure><img src="../.gitbook/assets/j2.png" alt="" width="563"><figcaption></figcaption></figure>
 
@@ -193,7 +193,7 @@ Script: "_As we gently bring our practice to a close, we will take a few moments
 
 **Purpose**: To internalise the essence of the forest and ground the experience within the body through the final sense: taste.&#x20;
 
-**Script**: "_I now invite you to join me in a simple tea ceremony. (Pour the tea for participants). This tea, whether made from plants of this forest or brought here by us, carries warmth and life. Before you drink, take a moment to hold the warm cup in your hands. Feel its heat. See its color. Bring it to your nose and inhale its scent. Now, take your first sip slowly. As you taste it, imagine you are tasting the essence of our journey—the peace, the connection, the aliveness. With each sip, feel that nourishment spreading through your body, a final gift from the forest to you._"
+**Script**: "_I now invite you to join me in a simple tea ceremony. (Pour the tea for participants). This tea, whether made from plants of this forest or brought here by us, carries warmth and life. Before you drink, take a moment to hold the warm cup in your hands. Feel its heat. See its color. Bring it to your nose and inhale its scent. Now, take your first sip slowly. As you taste it, imagine you are tasting the essence of our journey, the peace, the connection, the aliveness. With each sip, feel that nourishment spreading through your body, a final gift from the forest to you._"
 
 #### 2. The Sharing Circle: An Invitation of Voice
 
