@@ -59,7 +59,7 @@
 * [I: Lust of love, just water](journey-7/i-lust-of-love-just-water.md)
 * [👹 Starving the Archons](journey-7/starving-the-archons.md)
 * [💖 -J: Universal Love](journey-7/j-universal-love.md)
-* [🌌 -M: Space, Self Awareness](journey-7/m-space-self-awareness.md)
+* [🌌 Meditation: Space Awareness](journey-7/meditation-space-awareness.md)
 
 ## Journey 8
 
