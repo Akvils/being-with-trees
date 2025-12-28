@@ -49,7 +49,6 @@
 
 ## Journey 6
 
-* [👹 S: Secret ritual](journey-6/s-secret-ritual.md)
 * [I: War between the spirit of woman and man](journey-6/i-war-between-the-spirit-of-woman-and-man.md)
 * [🌱 I: What is it to be a tree?](journey-6/i-what-is-it-to-be-a-tree.md)
 * [👻 J: Shadow](journey-6/j-shadow.md)
@@ -57,8 +56,9 @@
 
 ## Journey 7
 
-* [I: Lust of love, just water](journey-7/i-lust-of-love-just-water.md)
+* [👹 S: Secret ritual](journey-7/s-secret-ritual.md)
 * [👹 Starving the Archons](journey-7/starving-the-archons.md)
+* [I: Lust of love, just water](journey-7/i-lust-of-love-just-water.md)
 * [💖 -J: Universal Love](journey-7/j-universal-love.md)
 * [🌌 Meditation: Space Awareness](journey-7/meditation-space-awareness.md)
 
