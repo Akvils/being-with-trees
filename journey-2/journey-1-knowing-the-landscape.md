@@ -112,7 +112,7 @@ When you are settled in your chosen spot, you may now begin the Inner Refuge med
 
 #### The Seventh Invitation: The Crown, Desire to Exist
 
-After completing the Inner Refuge meditation, as you sit in the profound state of peace it creates, you may feel called to deepen your practice with one final invitation. This is about **Unity**, and its energy centre is the Crown, or Sahasrara.
+After completing the Inner Refuge meditation, as you sit in the profound state of peace it creates, you may feel called to deepen your practice with one final invitation. This is about **Unity**, and its energy centre is the Crown, or Sahasrara. At this highest level, the desire is to simply exist, to merge into pure being, transcending all form.
 
 This is a practice of **Merging**.
 
