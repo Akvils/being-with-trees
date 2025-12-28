@@ -50,6 +50,7 @@
 ## Journey 6
 
 * [👹 S: Secret ritual](journey-6/s-secret-ritual.md)
+* [I: War between the spirit of woman and man](journey-6/i-war-between-the-spirit-of-woman-and-man.md)
 * [🌱 I: What is it to be a tree?](journey-6/i-what-is-it-to-be-a-tree.md)
 * [👻 J: Shadow](journey-6/j-shadow.md)
 * [👿 M: Ego Programs](journey-6/m-ego-programs.md)
