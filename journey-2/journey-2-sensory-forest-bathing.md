@@ -180,6 +180,8 @@ Open the heart and let the spirit flow
 **Purpose**: To practice the core principle of your journey: "awareness meeting awareness" with a single living being.\
 **Script**: "_Find a tree that calls to you. It doesn't need to be the biggest or oldest; just one you feel a connection with. Spend some time with it. First, just look at it. See its shape, its texture, the way its branches reach for the light... Now, if you feel comfortable, place a hand on its trunk. Feel its stillness, its strength. This tree is a living expression of the same intelligence that moves through you. It is breathing, growing, being. Can you sense its presence, its awareness beyond its physical form? Rest here. There is nothing to do but be present with this other being. Awareness meeting awareness._"
 
+_**Do the "The Tree of Awareness" meditation here.**_
+
 #### 7. The Invitation of Stillness
 
 **Purpose**: To integrate the experiences and rest in the state of expanded presence. \
