@@ -10,6 +10,7 @@
 * [💪 Why This Project Matters?](introduction/why-this-project-matters.md)
 * [👁️ The Story of Disconnection](introduction/the-story-of-disconnection.md)
 * [🕊️ Introduction to the Journeys](introduction/introduction-to-the-journeys.md)
+* [🧘‍♂️ Introduction to the Meditations](introduction/introduction-to-the-meditations.md)
 
 ## Journey 0
 
