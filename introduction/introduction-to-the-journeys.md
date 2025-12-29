@@ -24,4 +24,16 @@ On a deeper level, these journeys provide grounding. They help reconnect you wit
 
 Spiritually, the journeys cultivate sensitivity to consciousness beyond form. As perception refines, participants often report increased clarity, intuition, and a felt sense of connection that is not conceptual but experiential. This connection supports healing, integration, and a more coherent way of being in the world.
 
+#### The Journeys
+
+_"Write about each journey" what is it and what it will do, features and benefits, you till learn this this and this_
+
+These practices are organised into journeys, each designed to take you deeper into a relationship with nature, self, and consciousness. The progression is intentional. We begin with the external landscape, learning how to enter, move, and listen to the natural world. From there, the journeys gradually turn inward, working with the body, the senses, the nervous system, and the field of awareness itself.
+
+Each journey builds on the previous one. Early journeys establish grounding, presence, and orientation. Later journeys refine perception, deepen communion, and introduce subtler states of awareness and alignment. Together, they form a coherent path rather than a collection of isolated practices.
+
+While the journeys can be experienced individually, their full power unfolds through continuity. Repetition, familiarity, and sustained engagement allow the practices to mature organically. What begins as guided structure gradually becomes intuitive knowing, where the forest itself becomes the teacher.
+
+\*\*\*\*
+
 To support this depth of experience, these journeys are inseparable from meditation. Meditation provides the inner stability, presence, and clarity that allow the journeys to unfold as intended. Without it, the practices remain external. With it, the journeys become transformative. The next section introduces meditation as it is used throughout this work.
