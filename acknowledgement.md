@@ -1,6 +1,6 @@
 # 🌹 Acknowledgement
 
-A gift to the enlightened ones, Lizdeika and Čiurlionis.
+A gift to the Enlightened ones, Lizdeika and Čiurlionis.
 
 Love and gratitude to Neris, Vilnelė and all the birds,
 

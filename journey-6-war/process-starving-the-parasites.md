@@ -2,7 +2,7 @@
 description: A Guide to Reclaiming Your Personal Energy
 ---
 
-# 👹 Starving the Archons
+# 👺 Process: Starving the Parasites
 
 #### Introduction
 

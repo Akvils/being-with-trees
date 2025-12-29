@@ -4,8 +4,6 @@ description: 'Mara: We’re already dead'
 
 # 🧘‍♂️ The Architect Meditation: Journey to Sovereignty
 
-<figure><img src="../.gitbook/assets/ChatGPT Image Dec 11, 2025, 11_52_13 AM.png" alt="" width="563"><figcaption></figcaption></figure>
-
 (Begin by finding a comfortable, upright posture. Close your eyes and take three deep, slow breaths. Allow the weight of your body to settle.)
 
 #### The Invitation

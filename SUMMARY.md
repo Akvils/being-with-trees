@@ -10,7 +10,7 @@
 * [💪 Why This Project Matters?](introduction/why-this-project-matters.md)
 * [👁️ The Story of Disconnection](introduction/the-story-of-disconnection.md)
 * [🕊️ Introduction to the Journeys](introduction/introduction-to-the-journeys.md)
-* [🧘‍♂️ Introduction to the Meditations](introduction/introduction-to-the-meditations.md)
+* [🪔 Introduction to the Meditations](introduction/introduction-to-the-meditations.md)
 
 ## Journey 0 Cage
 
@@ -26,55 +26,61 @@
 * [⛰️ Journey 1: Knowing the Landscape](journey-1/journey-1-knowing-the-landscape.md)
 * [🧘‍♂️ Meditation: The Inner Refuge](journey-1/meditation-the-inner-refuge.md)
 
-## Journey 2
+## Journey 2 Sensory
 
-* [🌲 S: Origin of Trees](journey-2/s-origin-of-trees.md)
-* [🚶 Journey 2: Sensory Forest Bathing](journey-2/journey-2-sensory-forest-bathing.md)
-* [🌳 Meeting the Tree Part I: Receiving Power](journey-2/meeting-the-tree-part-i-receiving-power.md)
-* [🧘‍♂️ Meditation: The Tree of Awareness](journey-2/meditation-the-tree-of-awareness.md)
+* [🌲 S: Origin of Trees](journey-2-sensory/s-origin-of-trees.md)
+* [🚶 Journey 2: Sensory Forest Bathing](journey-2-sensory/journey-2-sensory-forest-bathing.md)
+* [🌳 Meeting the Tree Part I: Receiving Power](journey-2-sensory/meeting-the-tree-part-i-receiving-power.md)
+* [🧘‍♂️ Meditation: The Tree of Awareness](journey-2-sensory/meditation-the-tree-of-awareness.md)
 
-## Journey 3
+## Journey 3 Energy
 
-* [💌 S: A Tree and a Boy](journey-3/s-a-tree-and-a-boy/README.md)
-  * [The Woman Who Stayed with the Tree](journey-3/s-a-tree-and-a-boy/the-woman-who-stayed-with-the-tree.md)
-* [🌳 J: Energetic Merging with Trees](journey-3/j-energetic-merging-with-trees.md)
-* [🌳 Meeting the Tree Part II: Deeper Communion](journey-3/meeting-the-tree-part-ii-deeper-communion.md)
-* [M: Thought, Clouds of thoughts](journey-3/m-thought-clouds-of-thoughts.md)
+* [💌 S: A Tree and a Boy](journey-3-energy/s-a-tree-and-a-boy/README.md)
+  * [The Woman Who Stayed with the Tree](journey-3-energy/s-a-tree-and-a-boy/the-woman-who-stayed-with-the-tree.md)
+* [🌳 J: Energetic Merging with Trees](journey-3-energy/j-energetic-merging-with-trees.md)
+* [🌳 Meeting the Tree Part II: Deeper Communion](journey-3-energy/meeting-the-tree-part-ii-deeper-communion.md)
+* [M: Thought, Clouds of thoughts](journey-3-energy/m-thought-clouds-of-thoughts.md)
 
-## Journey 4
+## Journey 4 Spirit
 
-* [S: Original Sin](journey-4/s-original-sin.md)
-* [🧭 I: Internal compass of the mind](journey-4/i-internal-compass-of-the-mind.md)
-* [🧚 Journey Four: The Symphony of Spirit](journey-4/j-spiritual.md)
-* [M: Feelings, Pain, River of Negative emotions](journey-4/m-feelings-pain-river-of-negative-emotions.md)
+* [S: Original Sin](journey-4-spirit/s-original-sin.md)
+* [🧭 I: Internal compass of the mind](journey-4-spirit/i-internal-compass-of-the-mind.md)
+* [🧚 Journey Four: The Symphony of Spirit](journey-4-spirit/journey-four-the-symphony-of-spirit.md)
+* [M: Feelings, Pain, River of Negative emotions](journey-4-spirit/m-feelings-pain-river-of-negative-emotions.md)
 
-## Journey 5
+## Journey 5 Shadow
 
-* [I: War between the spirit of woman and man](journey-5/i-war-between-the-spirit-of-woman-and-man.md)
-* [🌱 I: What is it to be a tree?](journey-5/i-what-is-it-to-be-a-tree.md)
-* [👻 J: Shadow](journey-5/j-shadow.md)
-* [🌪️ The Energetic Cleanse](journey-5/the-energetic-cleanse.md)
+* [I: War between the spirit of woman and man](journey-5-shadow/i-war-between-the-spirit-of-woman-and-man.md)
+* [🌱 I: What is it to be a tree?](journey-5-shadow/i-what-is-it-to-be-a-tree.md)
+* [👻 J: Shadow](journey-5-shadow/j-shadow.md)
+* [🌪️ Process: The Energetic Cleanse](journey-5-shadow/process-the-energetic-cleanse.md)
 
-## Journey 6
+## Journey 6 War
 
-* [👹 -S: Secret ritual](journey-6/s-secret-ritual.md)
-* [👹 Starving the Archons](journey-6/starving-the-archons.md)
-* [I: Lust of love, just water](journey-6/i-lust-of-love-just-water.md)
-* [💖 -J: Universal Love](journey-6/j-universal-love.md)
-* [🌌 Meditation: Space Awareness](journey-6/meditation-space-awareness.md)
+* [👹 -S: Secret ritual](journey-6-war/s-secret-ritual.md)
+* [🏡 The Burning House](journey-6-war/the-burning-house.md)
+* [👺 Process: Starving the Parasites](journey-6-war/process-starving-the-parasites.md)
+* [🧘‍♂️ The Architect Meditation: Journey to Sovereignty](journey-6-war/the-architect-meditation-journey-to-sovereignty.md)
 
-## Journey 7
+## Journey 7 Love
 
-* [🏡 The Burning House](journey-7/the-burning-house.md)
-* [🧘‍♂️ The Architect Meditation: Journey to Sovereignty](journey-7/the-architect-meditation-journey-to-sovereignty.md)
-* [J: Ascension](journey-7/j-ascension.md)
-* [M: Self - That](journey-7/m-self-that.md)
+* [Love Story](journey-7-love/love-story.md)
+* [I: Lust of love, just water](journey-7-love/i-lust-of-love-just-water.md)
+* [💖 -J: Universal Love](journey-7-love/j-universal-love.md)
+* [🌌 Meditation: Space Awareness](journey-7-love/meditation-space-awareness.md)
 
-## Journey forward
+## Journey 8 Ascension
 
-* [💫 Return](journey-forward/return.md)
-* [🏰 Epilogue: The Light That Governs](journey-forward/epilogue-the-light-that-governs.md)
-* [🙏 Gratitude](journey-forward/gratitude.md)
+* [Acension Story](journey-8-ascension/acension-story.md)
+* [J: Ascension Journey](journey-8-ascension/j-ascension-journey.md)
+* [How will you walk if that lives in you](journey-8-ascension/how-will-you-walk-if-that-lives-in-you.md)
+* [M: Self - That](journey-8-ascension/m-self-that.md)
+
+## Journey forward: Freedom
+
+* [💫 Return](journey-forward-freedom/return.md)
+* [🏰 Epilogue: The Light That Governs](journey-forward-freedom/epilogue-the-light-that-governs.md)
+* [🙏 Gratitude](journey-forward-freedom/gratitude.md)
 
 ## 🧘‍♂️ Meditations
 

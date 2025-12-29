@@ -1,2 +1,2 @@
-# 🧘‍♂️ Introduction to the Meditations
+# 🪔 Introduction to the Meditations
 
