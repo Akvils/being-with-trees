@@ -15,14 +15,14 @@
 ## Journey 0
 
 * [🌄 Origin Story](journey-0/origin-story.md)
-* [🌅 How to Start a Journey?](journey-0/how-to-start-a-journey.md)
 * [💩 Journey Zero: The Walk of Shame](journey-0/journey-zero-the-walk-of-shame.md)
+* [🏞️ I: Initiation](journey-0/i-initiation.md)
 * [🔥 M: The Suchness of life](journey-0/m-the-suchness-of-life.md)
 
 ## Journey 1
 
 * [🌆 S: Origin of the city](journey-1/s-origin-of-the-city.md)
-* [🏞️ I: Initiation](journey-1/i-initiation.md)
+* [🌅 Entering the Forest Journeys](journey-1/entering-the-forest-journeys.md)
 * [⛰️ Journey 1: Knowing the Landscape](journey-1/journey-1-knowing-the-landscape.md)
 * [🧘‍♂️ Meditation: The Inner Refuge](journey-1/meditation-the-inner-refuge.md)
 
@@ -30,8 +30,8 @@
 
 * [🌲 S: Origin of Trees](journey-2/s-origin-of-trees.md)
 * [🚶 Journey 2: Sensory Forest Bathing](journey-2/journey-2-sensory-forest-bathing.md)
-* [🧘‍♂️ Meditation: The Tree of Awareness](journey-2/meditation-the-tree-of-awareness.md)
 * [🌳 Meeting the Tree Part I: Receiving Power](journey-2/meeting-the-tree-part-i-receiving-power.md)
+* [🧘‍♂️ Meditation: The Tree of Awareness](journey-2/meditation-the-tree-of-awareness.md)
 
 ## Journey 3
 
