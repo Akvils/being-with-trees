@@ -53,11 +53,11 @@
 * [I: War between the spirit of woman and man](journey-5/i-war-between-the-spirit-of-woman-and-man.md)
 * [🌱 I: What is it to be a tree?](journey-5/i-what-is-it-to-be-a-tree.md)
 * [👻 J: Shadow](journey-5/j-shadow.md)
-* [👿 M: Ego Programs](journey-5/m-ego-programs.md)
+* [🌪️ The Energetic Cleanse](journey-5/the-energetic-cleanse.md)
 
 ## Journey 6
 
-* [👹 S: Secret ritual](journey-6/s-secret-ritual.md)
+* [👹 -S: Secret ritual](journey-6/s-secret-ritual.md)
 * [👹 Starving the Archons](journey-6/starving-the-archons.md)
 * [I: Lust of love, just water](journey-6/i-lust-of-love-just-water.md)
 * [💖 -J: Universal Love](journey-6/j-universal-love.md)
