@@ -4,7 +4,7 @@ description: >-
   forest
 ---
 
-# Journey Four: The Symphony of Spirit
+# 🧚 Journey Four: The Symphony of Spirit
 
 #### Introduction
 

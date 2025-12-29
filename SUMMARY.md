@@ -14,17 +14,17 @@
 
 ## Journey 0 Cage
 
-* [🌄 Origin Story](journey-0-cage/origin-story.md)
-* [💩 Journey Zero: The Walk of Shame](journey-0-cage/journey-zero-the-walk-of-shame.md)
-* [🏞️ I: Initiation](journey-0-cage/i-initiation.md)
-* [🔥 M: The Suchness of life](journey-0-cage/m-the-suchness-of-life.md)
+* [🌄 Origin Story](journey-0/origin-story.md)
+* [💩 Journey Zero: The Walk of Shame](journey-0/journey-zero-the-walk-of-shame.md)
+* [🏞️ I: Initiation](journey-0/i-initiation.md)
+* [🔥 M: The Suchness of life](journey-0/m-the-suchness-of-life.md)
 
 ## Journey 1 Physical
 
-* [🌆 S: Origin of the city](journey-1-physical/s-origin-of-the-city.md)
-* [🌅 Entering the Forest Journeys](journey-1-physical/entering-the-forest-journeys.md)
-* [⛰️ Journey 1: Knowing the Landscape](journey-1-physical/journey-1-knowing-the-landscape.md)
-* [🧘‍♂️ Meditation: The Inner Refuge](journey-1-physical/meditation-the-inner-refuge.md)
+* [🌆 S: Origin of the city](journey-1/s-origin-of-the-city.md)
+* [🌅 Entering the Forest Journeys](journey-1/entering-the-forest-journeys.md)
+* [⛰️ Journey 1: Knowing the Landscape](journey-1/journey-1-knowing-the-landscape.md)
+* [🧘‍♂️ Meditation: The Inner Refuge](journey-1/meditation-the-inner-refuge.md)
 
 ## Journey 2
 
@@ -45,7 +45,7 @@
 
 * [S: Original Sin](journey-4/s-original-sin.md)
 * [🧭 I: Internal compass of the mind](journey-4/i-internal-compass-of-the-mind.md)
-* [Journey Four: The Symphony of Spirit](journey-4/journey-four-the-symphony-of-spirit.md)
+* [🧚 Journey Four: The Symphony of Spirit](journey-4/j-spiritual.md)
 * [M: Feelings, Pain, River of Negative emotions](journey-4/m-feelings-pain-river-of-negative-emotions.md)
 
 ## Journey 5
