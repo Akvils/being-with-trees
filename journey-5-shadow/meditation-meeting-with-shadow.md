@@ -1,8 +1,6 @@
-# 👻 J: Shadow
+# 👻 Meditation: Meeting with Shadow
 
 <div><figure><img src="../.gitbook/assets/person_surrounded_by_their_own (1) copy.jpeg" alt=""><figcaption></figcaption></figure> <figure><img src="../.gitbook/assets/person_surrounded_by_their_own (2) copy.jpeg" alt=""><figcaption></figcaption></figure></div>
-
-### Shadow Meeting Meditation
 
 Welcome.
 

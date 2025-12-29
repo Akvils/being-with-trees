@@ -1,8 +1,6 @@
-# 🌪️ The Energetic Cleanse
+# 🌪️ Process: The Energetic Cleanse
 
 <figure><img src="../.gitbook/assets/ChatGPT Image Dec 10, 2025, 12_43_34 PM.png" alt="" width="563"><figcaption></figcaption></figure>
-
-<figure><img src="../.gitbook/assets/ChatGPT Image Dec 11, 2025, 11_52_13 AM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 #### Introduction
 
@@ -17,7 +15,7 @@ This is a training. We are training the mind and the body to release negativity 
 The engine for this entire cleanse is a specific Tibetan breathing technique. The count is always 6-6-6.
 
 * Breathe in deeply for a count of 6.
-* Hold the breath for a count of 6.
+* Hold your breath for a count of 6.
 * Breathe out powerfully for a count of 6.
 
 We will use this breath throughout the practice to move energy.
@@ -125,3 +123,5 @@ Now we will move this energy from the inside out. You are the source.
 * Finally, shout loudly: "Wake up!"
 
 Now, let the energy settle. Sit in the silence you have created. If you have any questions or doubts, offer them up to the stillness and listen to the quiet, silent voice inside you.
+
+<figure><img src="../.gitbook/assets/image (3).png" alt=""><figcaption></figcaption></figure>

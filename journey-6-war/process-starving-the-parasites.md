@@ -4,6 +4,8 @@ description: A Guide to Reclaiming Your Personal Energy
 
 # 👺 Process: Starving the Parasites
 
+<figure><img src="../.gitbook/assets/image (1).png" alt="" width="563"><figcaption></figcaption></figure>
+
 #### Introduction
 
 This is a process for reclaiming your personal energy from seven specific types of parasitic, non-physical entities. Their sole function is to feed on your core life force. They achieve this by projecting negative thoughts and emotions into your mind, provoking you into a reaction. When you express intense negative emotions like rage, despair, or fear, you generate the specific "food" they consume.

@@ -52,7 +52,7 @@
 
 * [I: War between the spirit of woman and man](journey-5-shadow/i-war-between-the-spirit-of-woman-and-man.md)
 * [🌱 I: What is it to be a tree?](journey-5-shadow/i-what-is-it-to-be-a-tree.md)
-* [👻 J: Shadow](journey-5-shadow/j-shadow.md)
+* [👻 Meditation: Meeting with Shadow](journey-5-shadow/meditation-meeting-with-shadow.md)
 * [🌪️ Process: The Energetic Cleanse](journey-5-shadow/process-the-energetic-cleanse.md)
 
 ## Journey 6 War
