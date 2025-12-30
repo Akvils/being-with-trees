@@ -67,12 +67,12 @@
 * [I: Lust of love, just water](journey-7-love/i-lust-of-love-just-water.md)
 * [💖 Journey Seven: The Universal Embrace](journey-7-love/journey-seven-the-universal-embrace.md)
 * [💌 The Story of the Door](journey-7-love/the-story-of-the-door.md)
-* [🌌 Meditation: Space Awareness](journey-7-love/meditation-space-awareness.md)
 
 ## Journey 8 Ascension
 
 * [Acension Story](journey-8-ascension/acension-story.md)
 * [J: Ascension Journey](journey-8-ascension/j-ascension-journey.md)
+* [🌌 Meditation: Space Awareness](journey-8-ascension/meditation-space-awareness.md)
 * [How will you walk if that lives in you](journey-8-ascension/how-will-you-walk-if-that-lives-in-you.md)
 * [M: Self - That](journey-8-ascension/m-self-that.md)
 
