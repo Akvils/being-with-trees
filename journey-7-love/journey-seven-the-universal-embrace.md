@@ -204,6 +204,8 @@ Feel it for the path that supports your feet. Feel it for the trees that watch y
 
 You are no longer just a person taking a walk. You are Love Itself, moving through the world, recognizing itself everywhere it looks. Continue this radiant walk for as long as you wish.
 
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 30, 2025, 03_42_32 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+
 #### The Path Forward
 
 You have learned to see with the eyes of your heart. You have discovered that the love you once sought from a single person is, in fact, radiating toward you from every direction, at all times. You have experienced the profound truth that the universe is not a neutral or hostile place, but a living, loving presence that is fundamentally, unconditionally in love with you.
