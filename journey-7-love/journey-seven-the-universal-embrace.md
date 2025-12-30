@@ -144,6 +144,8 @@ Take a deep breath and let these truths settle into every cell of your being. Th
 
 The meditation to create the seed feeling is now complete. We are ready to use this lens.
 
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 30, 2025, 03_44_51 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+
 #### Part 3: The Core Practice (Stage 2) - The Great Expansion
 
 Keep your eyes closed. Continue to hold that powerful, radiant field of love you have generated. Feel its warmth, its safety, its joy.
@@ -173,6 +175,8 @@ Let us begin the expansion.
 This is the truth of your existence. You are not a separate being, walking through a neutral world. You are a cherished part of a living, loving universe. You are deeply and completely held.
 
 Rest in this knowing. Let the reality of this universal embrace wash over you. There is nothing to do but receive it.
+
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 30, 2025, 03_44_53 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 #### Part 4: The Invitation of Universal Reception
 
