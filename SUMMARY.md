@@ -66,7 +66,7 @@
 
 * [Love Story](journey-7-love/love-story.md)
 * [I: Lust of love, just water](journey-7-love/i-lust-of-love-just-water.md)
-* [💖 -J: Universal Love](journey-7-love/j-universal-love.md)
+* [💖 Journey Seven: The Universal Embrace](journey-7-love/journey-seven-the-universal-embrace.md)
 * [🌌 Meditation: Space Awareness](journey-7-love/meditation-space-awareness.md)
 
 ## Journey 8 Ascension
