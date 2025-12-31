@@ -408,4 +408,6 @@ These seven entities maintain their power by remaining invisible, by convincing 
 
 But they're not psychological. They're parasitical. And parasites can be removed once you recognize they're there.
 
-Do the work. Perform the banishments. Reclaim your consciousness and finally experience what it's like to live as a sovereign being, free from parasitic influence.<br>
+Do the work. Perform the banishments. Reclaim your consciousness and finally experience what it's like to live as a sovereign being, free from parasitic influence.
+
+<p align="center"><img src="../.gitbook/assets/ChatGPT Image Dec 31, 2025, 03_04_43 PM (1).png" alt=""><br></p>
