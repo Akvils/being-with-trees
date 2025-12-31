@@ -71,10 +71,9 @@
 ## Journey 8 Dissolve
 
 * [💌 The Story of the Door](journey-8-dissolve/the-story-of-the-door.md)
-* [Journey Eight: Dissolution](journey-8-dissolve/journey-eight-dissolution.md)
+* [🌊 Journey Eight: Dissolution](journey-8-dissolve/journey-eight-dissolution.md)
 * [🌌 Meditation: Space Awareness](journey-8-dissolve/meditation-space-awareness.md)
 * [🌈 Synchronicities](journey-8-dissolve/synchronicities.md)
-* [M: Self - That](journey-8-dissolve/m-self-that.md)
 
 ## Journey forward: Ascension
 

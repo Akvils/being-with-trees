@@ -1,4 +1,4 @@
-# Journey Eight: Dissolution
+# 🌊 Journey Eight: Dissolution
 
 #### Introduction: The Nature of Surrender
 
