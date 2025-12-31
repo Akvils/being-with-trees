@@ -67,22 +67,21 @@
 
 * [I: Lust of love, just water](journey-7-love/i-lust-of-love-just-water.md)
 * [💖 Journey Seven: The Universal Embrace](journey-7-love/journey-seven-the-universal-embrace.md)
-* [💌 The Story of the Door](journey-7-love/the-story-of-the-door.md)
 
-## Journey 8 Ascension
+## Journey 8 Dissolve
 
-* [Acension Story](journey-8-ascension/acension-story.md)
-* [J: Ascension Journey](journey-8-ascension/j-ascension-journey.md)
-* [🌌 Meditation: Space Awareness](journey-8-ascension/meditation-space-awareness.md)
-* [How will you walk if that lives in you](journey-8-ascension/how-will-you-walk-if-that-lives-in-you.md)
-* [M: Self - That](journey-8-ascension/m-self-that.md)
+* [💌 The Story of the Door](journey-8-dissolve/the-story-of-the-door.md)
+* [Journey Eight: Dissolve](journey-8-dissolve/journey-eight-dissolve.md)
+* [🌌 Meditation: Space Awareness](journey-8-dissolve/meditation-space-awareness.md)
+* [🌈 Synchronicities](journey-8-dissolve/synchronicities.md)
+* [M: Self - That](journey-8-dissolve/m-self-that.md)
 
-## Journey forward: Freedom
+## Journey forward: Ascension
 
-* [💫 Return](journey-forward-freedom/return.md)
-* [🌈 Synchronicities](journey-forward-freedom/synchronicities.md)
-* [🏰 Epilogue: The Light That Governs](journey-forward-freedom/epilogue-the-light-that-governs.md)
-* [🙏 Gratitude](journey-forward-freedom/gratitude.md)
+* [💫 Return](journey-forward-ascension/return.md)
+* [J: Ascension Journey](journey-forward-ascension/j-ascension-journey.md)
+* [🏰 Epilogue: The Light That Governs](journey-forward-ascension/epilogue-the-light-that-governs.md)
+* [🙏 Gratitude](journey-forward-ascension/gratitude.md)
 
 ## 🧘‍♂️ Meditations
 
