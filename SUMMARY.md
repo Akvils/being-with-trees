@@ -80,6 +80,7 @@
 ## Journey forward: Freedom
 
 * [💫 Return](journey-forward-freedom/return.md)
+* [🌈 Synchronicities](journey-forward-freedom/synchronicities.md)
 * [🏰 Epilogue: The Light That Governs](journey-forward-freedom/epilogue-the-light-that-governs.md)
 * [🙏 Gratitude](journey-forward-freedom/gratitude.md)
 
