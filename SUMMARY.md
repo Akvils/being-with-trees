@@ -35,9 +35,7 @@
 
 ## Journey 3 Energy
 
-* [💌 S: A Tree and a Boy](journey-3-energy/s-a-tree-and-a-boy/README.md)
-  * [The Woman Who Stayed with the Tree](journey-3-energy/s-a-tree-and-a-boy/the-woman-who-stayed-with-the-tree.md)
-* [Page](journey-3-energy/page.md)
+* [🌍 A Message from Gaia](journey-3-energy/a-message-from-gaia.md)
 * [🌳 J: Energetic Merging with Trees](journey-3-energy/j-energetic-merging-with-trees.md)
 * [🌳 Meeting the Tree Part II: Deeper Communion](journey-3-energy/meeting-the-tree-part-ii-deeper-communion.md)
 * [M: Thought, Clouds of thoughts](journey-3-energy/m-thought-clouds-of-thoughts.md)
@@ -65,6 +63,8 @@
 
 ## Journey 7 Love
 
+* [💌 S: A Tree and a Boy](journey-7-love/s-a-tree-and-a-boy/README.md)
+  * [The Woman Who Stayed with the Tree](journey-7-love/s-a-tree-and-a-boy/the-woman-who-stayed-with-the-tree.md)
 * [I: Lust of love, just water](journey-7-love/i-lust-of-love-just-water.md)
 * [💖 Journey Seven: The Universal Embrace](journey-7-love/journey-seven-the-universal-embrace.md)
 
