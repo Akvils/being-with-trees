@@ -1,5 +1,7 @@
 # 🌍 A Message from Gaia
 
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 2, 2026, 01_08_19 AM.png" alt="" width="563"><figcaption></figcaption></figure>
+
 Gaia spoke, not in words, but in knowing.\
 She showed that what we call “human progress” is, in truth, a kind of forgetfulness. We have become clever, yes, but our cleverness has no rhythm. We invent, consume, and celebrate control, while all the while drifting farther from the quiet intelligence that sustains life itself.
 
