@@ -2,6 +2,8 @@
 
 A gift to the Enlightened ones, Lizdeika and Čiurlionis.
 
-Love and gratitude to Neris, Vilnelė and all the birds,
+Deep gratitude to Varuna and Perkūnas,
+
+Love to Neris and Vilnelė,
 
 Special thanks to Eglė and family. 🌹
