@@ -87,3 +87,8 @@
 * [🌅 Morning](meditations/morning.md)
 * [🌔 Afternoon](meditations/afternoon.md)
 * [🌃 Night](meditations/night.md)
+* [😱 Catharsis](meditations/catharsis.md)
+
+## FAQs
+
+* [💰 What must I give back?](faqs/what-must-i-give-back.md)
