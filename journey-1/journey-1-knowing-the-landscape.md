@@ -6,15 +6,27 @@ description: 'Journey One: Getting to Know Your Environment'
 
 <figure><img src="../.gitbook/assets/j1 Know Your Environment.png" alt="" width="563"><figcaption></figcaption></figure>
 
-The journeys in this program are designed to unfold step by step, beginning outward, with the world around us, and gradually moving inward, into subtler and deeper layers of experience. Each journey is an exploration, and together they form a path.
+The journeys in this program unfold step by step, beginning outward with the world around us and gradually moving inward into subtler and deeper layers of experience. Each journey is an exploration, and together they form a coherent path.
 
-We begin in Vilnius, Lithuania, in Bernardino Sodas, a park that will serve as the landscape of our first practice. This place is both ordinary and extraordinary, a living ecosystem where nature, trees, people, and energy flow together.
+To engage in these journeys, we need a path, a natural place where we can walk, practise, and return regularly. This may be a local park, a forest path, a riverside, or any green space you can access consistently. This place will serve as your primary field of practice throughout the program. It functions much like a temple or an altar room for these journeys.
 
-We invite you to find a similar setting that is accessible to you. This could be your own local park, a city green space, or any patch of nature you can return to.
+Traditionally, an altar space in your home, or a dedicated temple room, functions as a personal sanctuary. It is a space chosen for meditation and spiritual practice, entered with care and respect. In the beginning, we consciously avoid bringing strong negative emotions into this space. Over time, through repeated presence, stillness, and practice, the space becomes conditioned.
 
-The first journey is about getting to know your environment, your park, your forest, your city’s green space. It is about learning to move through different levels of energy in harmony with nature.
+When you enter it, your body and mind naturally shift into a calmer, more coherent state. Sitting there brings alignment more easily. The space begins to hold your intention and reflect it back to you.
 
-This first journey is about getting to know this environment. Take the time to truly explore it, as this space will become your sanctuary and your healing space. This is the ground where you will later learn to meditate deeply, to meet the spirit of nature, and to journey into yourself and beyond.&#x20;
+In the same way, as you spend time practising in a chosen natural place, a relationship forms, not only with the location itself, but with the subtle life of the environment. By approaching the space with respect and consistency, you attune to it. In traditional language, this is described as “making friends with the spirits” of the place. Practically, it means the environment begins to support your practice.
+
+Over time, this place becomes regenerative. When you return to it, you feel held, restored, and grounded. Healing happens more easily, clarity returns, and your system resets.
+
+By the end of these journeys, you are no longer practising in a space; you are practising with it. When life becomes overwhelming, you can return to this place to recover, realign, and then step back into the world with greater stability and strength. This is how a personal spiritual world is consciously created, one that supports you, restores you, and grows with you.
+
+We begin in Vilnius, Lithuania, at Bernardinų Sodas, a park that serves as the landscape for our first practice. It is both ordinary and extraordinary: a living ecosystem where trees, people, water, and movement coexist.
+
+You are invited to find a similar setting that is accessible to you.
+
+The first journey is about getting to know your environment. It is about learning to move through this space with awareness and sensing different layers of energy in harmony with nature.
+
+Take time to explore this place slowly and attentively. This environment will become your sanctuary and your healing ground, the foundation where you will later learn to meditate more deeply, meet the intelligence of nature, and journey inward and beyond.&#x20;
 
 **A Map for the Journey**
 
