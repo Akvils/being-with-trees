@@ -1,5 +1,5 @@
 ---
-description: 'Mara: We’re already dead'
+description: Mara is not strong, you're weak
 ---
 
 # 🧘‍♂️ The Architect Meditation: Journey to Sovereignty
