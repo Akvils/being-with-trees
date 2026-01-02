@@ -38,7 +38,7 @@
 * [🌍 A Message from Gaia](journey-3-energy/a-message-from-gaia.md)
 * [🌳 J: Energetic Merging with Trees](journey-3-energy/j-energetic-merging-with-trees.md)
 * [🌳 Meeting the Tree Part II: Deeper Communion](journey-3-energy/meeting-the-tree-part-ii-deeper-communion.md)
-* [M: Thought, Clouds of thoughts](journey-3-energy/m-thought-clouds-of-thoughts.md)
+* [🧘‍♂️ Meditation: The Undisturbed Mind](journey-3-energy/meditation-the-undisturbed-mind.md)
 
 ## Journey 4 Spirit
 
