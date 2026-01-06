@@ -45,7 +45,7 @@
 * [S: Original Sin](journey-4-spirit/s-original-sin.md)
 * [🧭 I: Internal compass of the mind](journey-4-spirit/i-internal-compass-of-the-mind.md)
 * [🧚 Journey Four: The Symphony of Spirit](journey-4-spirit/journey-four-the-symphony-of-spirit.md)
-* [M: Feelings, Pain, River of Negative emotions](journey-4-spirit/m-feelings-pain-river-of-negative-emotions.md)
+* [🧘‍♂️ Meditation: The Bubble of Emotions](journey-4-spirit/meditation-the-bubble-of-emotions.md)
 
 ## Journey 5 Shadow
 
