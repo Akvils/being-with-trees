@@ -48,9 +48,9 @@ The cycle is this: Watch the thought. Feel the body.
 
 Repeat this again and again. As if looking through your forehead, quietly watch that thought pulling your attention, and then include the awareness of your whole body until it tingles and feels full of life. Feel your awareness extend and flow right down into your arms and legs.
 
-Practice this until you find yourself being less involved and fascinated by your thoughts. By merely observing layers of distracting thought in this way, they will gradually dissolve and lose their power to hold your attention captive.
+Practice this until you find yourself being less involved and fascinated by your thoughts. By merely observing layers of distracting thought in this way, they will gradually dissolve and lose their power to hold your attention.
 
-This is the only practice. Do nothing more than this. Be aware of thoughts as though you are looking through the middle of your forehead, and at the same time, become aware of your body until it tingles and feels full of life.
+This is the practice. Be aware of thoughts as though you are looking through the middle of your forehead, and at the same time, become aware of your body until it tingles and feels full of life.
 
 (Long, Deep Silence for Practice)
 
