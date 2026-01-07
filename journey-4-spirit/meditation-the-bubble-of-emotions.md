@@ -56,9 +56,9 @@ This is the practice. Be aware of thoughts as though you are looking through the
 
 #### Part 2: The New Understanding
 
-Last time, we learned to watch thoughts. Now, we go deeper. We will learn to watch emotions.
+Now, we go deeper. We will learn to watch emotions and release them.
 
-Realize that emotions are the energy that create thousands of thoughts. When the energy of an emotion is released, the thousands of thoughts it was creating simply disappear. You will feel lighter and more peaceful.
+Emotions are the energy that creates thousands of thoughts. When the energy of an emotion is released, the thousands of thoughts it was creating simply disappear. When that happens, you feel lighter and more peaceful.
 
 In this practice, we will learn how to release these basic emotions. This is a drill, a training, so that when these feelings arise in your daily life, you will know how to let them go.
 
