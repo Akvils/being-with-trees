@@ -34,7 +34,7 @@ Hold this feeling of total body awareness. Keep doing this as we proceed.
 
 (Long Pause)
 
-The Core Practice of Observation
+**The Core Practice of Observation**
 
 You are aware of your entire body, a field of aliveness. You are aware of the point in your forehead, from which you observe.
 
