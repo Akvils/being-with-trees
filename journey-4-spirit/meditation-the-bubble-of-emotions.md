@@ -64,7 +64,7 @@ In this practice, we will learn how to release these basic emotions. This is a d
 
 #### Part 3: The Map - The Bubble of Suffering
 
-Begin by seeing a vast, open space. This is your true nature, boundless and aware.
+Begin by seeing a vast, open space between your eyebrows. This is your true nature, boundless and aware.
 
 Within this space, notice a single, tiny dot. This dot is your suffering.
 
