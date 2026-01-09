@@ -138,7 +138,7 @@ The mental pictures are limited and destructive, so that you see only failure. Y
 
 Here are some of the words that describe apathy. As they are spoken, just notice what arises.
 
-Bored... Can't win... Careless... Cold... Cut-off... Dead... Defeated... Depressed... Demoralized... Desolate... Despair... Discouraged... Disillusioned... Doomed... Drained... Failure... Forgetful... Futile... Giving up... Hardened... Hopeless... Humorless... I can't... I don't care... I don't count... Inattentive... Indecisive... Indifferent... Invisible... It's too late... Lazy... Let it wait... Listless... Loser... Lost... Negative... Numb... Overwhelmed... Powerless... Resigned... Shock... Spaced out... Stoned... Stuck... Too tired... Unfeeling... Unfocused... Useless... Vague... Wasted... What's the use?... Why try?... Worthless.
+_Bored... Can't win... Careless... Cold... Cut-off... Dead... Defeated... Depressed... Demoralized... Desolate... Despair... Discouraged... Disillusioned... Doomed... Drained... Failure... Forgetful... Futile... Giving up... Hardened... Hopeless... Humorless... I can't... I don't care... I don't count... Inattentive... Indecisive... Indifferent... Invisible... It's too late... Lazy... Let it wait... Listless... Loser... Lost... Negative... Numb... Overwhelmed... Powerless... Resigned... Shock... Spaced out... Stoned... Stuck... Too tired... Unfeeling... Unfocused... Useless... Vague... Wasted... What's the use?... Why try?... Worthless._
 
 Now, in this moment, just welcome whatever you are experiencing. Any sounds, pictures, or sensations in your body related to this emotion.
 
@@ -204,9 +204,9 @@ While in apathy you numb yourself out, in grief there is more discomfort.
 
 Here are some of the words that describe grief. Just notice what arises.
 
-Abandoned... Abused... Accused... Anguished... Ashamed... Betrayed... Blue... Cheated... Despair... Disappointed... Distraught... Embarrassed... Forgotten... Guilty... Heartbroken... Heartache... Heartsick... Helpless... Hurt... If only... Ignored... Inadequate... Inconsolable... It's not fair... Left out... Longing... Loss... Melancholy... Misunderstood... Mourning... Neglected... Nobody cares... Nobody loves me... Nostalgia... Passed over... Pity... Poor me... Regret... Rejected... Remorse... Sadness... Sorrow... Tearful... Tormented... Torn... Tortured... Unhappy... Unloved... Unwanted... Vulnerable... Why me?... Wounded.
+_Abandoned... Abused... Accused... Anguished... Ashamed... Betrayed... Blue... Cheated... Despair... Disappointed... Distraught... Embarrassed... Forgotten... Guilty... Heartbroken... Heartache... Heartsick... Helpless... Hurt... If only... Ignored... Inadequate... Inconsolable... It's not fair... Left out... Longing... Loss... Melancholy... Misunderstood... Mourning... Neglected... Nobody cares... Nobody loves me... Nostalgia... Passed over... Pity... Poor me... Regret... Rejected... Remorse... Sadness... Sorrow... Tearful... Tormented... Torn... Tortured... Unhappy... Unloved... Unwanted... Vulnerable... Why me?... Wounded._
 
-Now, welcome whatever feeling arises when you focus on this grief energy—sensations in your body, sounds, pictures, thoughts. You might also have a reactive emotion that is not grief itself. It does not matter.
+Now, welcome whatever feeling arises when you focus on this grief energy, sensations in your body, sounds, pictures, thoughts. You might also have a reactive emotion that is not grief itself. It does not matter.
 
 Just let it be there as best as you can.
 
@@ -224,7 +224,7 @@ Breathe into this feeling. Breathe fully, deep into your belly.\
 Hold. Feel that feeling there. One... two... three... four...\
 And with an out-breath, making a 'shhh' sound, let it go. Release it.
 
-Again, welcome whatever you are feeling—any sensations, sounds, or pictures associated with it.
+Again, welcome whatever you are feeling, any sensations, sounds, or pictures associated with it.
 
 (Pause)
 
@@ -248,7 +248,7 @@ Could you let it go, as best as you can?\
 Would you let it go?\
 When?
 
-Again, welcome whatever you are feeling at this moment—any sensations, sounds, or pictures associated with this feeling.
+Again, welcome whatever you are feeling at this moment, any sensations, sounds, or pictures associated with this feeling.
 
 (Pause)
 
@@ -268,7 +268,7 @@ Your thoughts are about doom and destruction. All you can think and see is how y
 
 Here are some of the words that describe fear. As they are spoken, just notice what arises.
 
-Anxious... Apprehensive... Cautious... Clammy... Cowardice... Defensive... Distrust... Doubt... Dread... Embarrassed... Evasive... Foreboding... Frantic... Hesitant... Horrified... Hysterical... Inhibited... Insecure... Irrational... Nausea... Nervous... Panic... Paralyzed... Paranoid... Scared... Secretive... Shaky... Shy... Skeptical... Stage fright... Superstitious... Suspicious... Tense... Terrified... Threatened... Timid... Trapped... Uncertain... Uneasy... Vulnerable... Want to escape... Wary... Worry.
+_Anxious... Apprehensive... Cautious... Clammy... Cowardice... Defensive... Distrust... Doubt... Dread... Embarrassed... Evasive... Foreboding... Frantic... Hesitant... Horrified... Hysterical... Inhibited... Insecure... Irrational... Nausea... Nervous... Panic... Paralyzed... Paranoid... Scared... Secretive... Shaky... Shy... Skeptical... Stage fright... Superstitious... Suspicious... Tense... Terrified... Threatened... Timid... Trapped... Uncertain... Uneasy... Vulnerable... Want to escape... Wary... Worry._
 
 Now, in this moment, just welcome whatever you are experiencing. Any sounds, pictures, or sensations in your body related to this emotion.
 
@@ -336,7 +336,7 @@ If you are hesitant to let go of lust, simply ask yourself, "Would I rather want
 
 Here are some of the words that describe lust. Just notice what arises.
 
-Abandon... Anticipation... Callous... Can't wait... Compulsive... Craving... Demanding... Devious... Driven... Envy... Exploitive... Fixated... Frenzy... Frustrated... Gluttonous... Greedy... Hoarding... Hunger... I want... Impatient... Lascivious... Lecherous... Manipulative... Miserly... Must have it... Never enough... Never satisfied... Oblivious... Obsessed... Overindulgent... Possessive... Predatory... Pushy... Reckless... Ruthless... Scheming... Selfish... Voracious... Wanton... Wicked.
+_Abandon... Anticipation... Callous... Can't wait... Compulsive... Craving... Demanding... Devious... Driven... Envy... Exploitive... Fixated... Frenzy... Frustrated... Gluttonous... Greedy... Hoarding... Hunger... I want... Impatient... Lascivious... Lecherous... Manipulative... Miserly... Must have it... Never enough... Never satisfied... Oblivious... Obsessed... Overindulgent... Possessive... Predatory... Pushy... Reckless... Ruthless... Scheming... Selfish... Voracious... Wanton... Wicked._
 
 Now, in this moment, just welcome whatever you are experiencing. Any sounds, pictures, or sensations in your body related to this emotion.
 
@@ -402,7 +402,7 @@ Many of us keep ourselves below the energy of anger because we think we should n
 
 Here are some of the words that describe anger. Just notice what arises.
 
-Abrasive... Aggressive... Annoyed... Argumentative... Belligerent... Boiling... Brooding... Caustic... Defiant... Demanding... Destructive... Disgust... Explosive... Fierce... Frustrated... Fuming... Furious... Harsh... Hatred... Hostility... Impatience... Indignant... Irate... Jealous... Livid... Mad... Mean... Merciless... Murderous... Outraged... Petulant... Pushy... Rebellious... Resentment... Resistant... Revolted... Rude... Savage... Simmering... Sizzling... Smoldering... Spiteful... Steely... Stern... Stewing... Stubborn... Sullen... Vengeful... Vicious... Violent... Volcanic... Wicked... Willful.
+_Abrasive... Aggressive... Annoyed... Argumentative... Belligerent... Boiling... Brooding... Caustic... Defiant... Demanding... Destructive... Disgust... Explosive... Fierce... Frustrated... Fuming... Furious... Harsh... Hatred... Hostility... Impatience... Indignant... Irate... Jealous... Livid... Mad... Mean... Merciless... Murderous... Outraged... Petulant... Pushy... Rebellious... Resentment... Resistant... Revolted... Rude... Savage... Simmering... Sizzling... Smoldering... Spiteful... Steely... Stern... Stewing... Stubborn... Sullen... Vengeful... Vicious... Violent... Volcanic... Wicked... Willful._
 
 Now, in this moment, just welcome whatever you are experiencing. Any sounds, pictures, or sensations in your body related to this emotion. If you feel any resistance to anger, welcome that resistance as well.
 
@@ -462,13 +462,13 @@ Now, let's move up to Pride.
 
 If it helps, you can even arch your head a little bit and give a little flick to get into the energy of pride.
 
-In pride, you want to maintain the status quo. You are unwilling to change or move, and so you stop others from movement so they do not pass you by. The body has more energy than in anger, but it often becomes unavailable—muted and less visible. The mind is still noisy, but now it is rigid and self-involved. Your thoughts are about what you have done and what you know. If you are even aware of others, you hope they will notice how great you are to cover over your constant, hidden doubts.
+In pride, you want to maintain the status quo. You are unwilling to change or move, and so you stop others from movement so they do not pass you by. The body has more energy than in anger, but it often becomes unavailable, muted and less visible. The mind is still noisy, but now it is rigid and self-involved. Your thoughts are about what you have done and what you know. If you are even aware of others, you hope they will notice how great you are to cover over your constant, hidden doubts.
 
 Pride is a strange and sticky emotion. You can be proud of your apathy, proud of your grief, or proud of how angry you are. Of all the emotions, it has the least "feel" to it, which is why it is often the most stuck place we get into. Many of us also deny having any pride. But if you resonate with any of these words, you probably have it.
 
 Here are some of the words that describe pride. Just notice what arises.
 
-Above... Aloof... Arrogant... Bigoted... Boastful... Bored... Clever... Closed... Complacent... Conceited... Contemptuous... Cool... Critical... Disdain... Dogmatic... False dignity... False humility... False virtue... Gloating... Haughty... Holier than thou... Hypocritical... Icy... Isolated... Judgmental... Know-it-all... Narrow-minded... Never wrong... Opinionated... Overbearing... Patronizing... Pious... Prejudiced... Presumptuous... Reproach... Righteous... Rigid... Self-absorbed... Self-satisfied... Selfish... Smug... Snobbish... Special... Spoiled... Stoic... Stubborn... Stuck-up... Superior... Uncompromising... Unfeeling... Unforgiving... Unyielding... Vain.
+_Above... Aloof... Arrogant... Bigoted... Boastful... Bored... Clever... Closed... Complacent... Conceited... Contemptuous... Cool... Critical... Disdain... Dogmatic... False dignity... False humility... False virtue... Gloating... Haughty... Holier than thou... Hypocritical... Icy... Isolated... Judgmental... Know-it-all... Narrow-minded... Never wrong... Opinionated... Overbearing... Patronizing... Pious... Prejudiced... Presumptuous... Reproach... Righteous... Rigid... Self-absorbed... Self-satisfied... Selfish... Smug... Snobbish... Special... Spoiled... Stoic... Stubborn... Stuck-up... Superior... Uncompromising... Unfeeling... Unforgiving... Unyielding... Vain._
 
 Now, in this moment, just welcome whatever you are experiencing. Any sounds, pictures, or sensations in your body related to this emotion. If you have any resistance to pride, let that go as well.
 
@@ -534,7 +534,7 @@ Because we spend so much time in the lower emotions, we sometimes cling to these
 
 Here are some of the words that describe courage. Just notice what arises.
 
-Adventurous... Alert... Alive... Assured... Aware... Centered... Certain... Cheerful... Clarity... Compassion... Competent... Confident... Creative... Daring... Decisive... Dynamic... Eager... Enthusiastic... Exhilaration... Explorative... Flexible... Focused... Giving... Happy... Honorable... Humor... I can... Independent... Initiative... Integrity... Invincible... Loving... Lucid... Motivated... Non-resistant... Open... Optimistic... Perspective... Positive... Purposeful... Receptive... Resilient... Resourceful... Responsive... Secure... Self-sufficient... Sharp... Spontaneous... Strong... Supportive... Tireless... Vigorous... Visionary... Willing... Zest.
+_Adventurous... Alert... Alive... Assured... Aware... Centered... Certain... Cheerful... Clarity... Compassion... Competent... Confident... Creative... Daring... Decisive... Dynamic... Eager... Enthusiastic... Exhilaration... Explorative... Flexible... Focused... Giving... Happy... Honorable... Humor... I can... Independent... Initiative... Integrity... Invincible... Loving... Lucid... Motivated... Non-resistant... Open... Optimistic... Perspective... Positive... Purposeful... Receptive... Resilient... Resourceful... Responsive... Secure... Self-sufficient... Sharp... Spontaneous... Strong... Supportive... Tireless... Vigorous... Visionary... Willing... Zest._
 
 Welcome this energy into your awareness. Just let it be here. Notice any sounds, sensations, or pictures that arise with it.
 
@@ -586,7 +586,7 @@ The body has even more energy than in courageousness, yet it is mostly at rest, 
 
 Here are some of the words that describe acceptance. Just notice what arises.
 
-Abundance... Appreciative... Balance... Beautiful... Belonging... Childlike... Compassion... Considerate... Delight... Elated... Embracing... Empathy... Enriched... Everything's okay... Friendly... Fullness... Gentle... Glowing... Gracious... Harmonious... Harmony... Intuitive... I have... In tune... Joyful... Loving... Magnanimous... Mellow... Naturalness... Nothing to change... Open... Playful... Radiant... Receptive... Secure... Soft... Tender... Understanding... Warm... Well-being... Wonder.
+_Abundance... Appreciative... Balance... Beautiful... Belonging... Childlike... Compassion... Considerate... Delight... Elated... Embracing... Empathy... Enriched... Everything's okay... Friendly... Fullness... Gentle... Glowing... Gracious... Harmonious... Harmony... Intuitive... I have... In tune... Joyful... Loving... Magnanimous... Mellow... Naturalness... Nothing to change... Open... Playful... Radiant... Receptive... Secure... Soft... Tender... Understanding... Warm... Well-being... Wonder._
 
 Welcome this energy. Notice whatever sensations, pictures, or sounds arise with it.
 
@@ -638,7 +638,7 @@ The body has more energy than in any other state, yet it is totally at rest, com
 
 Here are some words that describe peace.
 
-Ageless... Awareness... Being... Bliss... Boundless... Calm... Centered... Complete... Eternal... Free... Fulfilled... Glowing... I am... Imperturbable... Knowingness... Light... Oneness... Perfection... Presence... Pure... Quiet... Serenity... Space... Still... Timeless... Tranquility... Unlimited... Whole.
+_Awareness... Being... Bliss... Ageless... Boundless... Calm... Centered... Complete... Eternal... Free... Fulfilled... Glowing... I am... Imperturbable... Knowingness... Light... Oneness... Perfection... Presence... Pure... Quiet... Serenity... Space... Still... Timeless... Tranquility... Unlimited... Whole._
 
 Now, as best as you can, just sink into that feeling.
 
