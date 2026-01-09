@@ -4,7 +4,7 @@ description: The planet is ascending, get on the ride.
 
 # 🕊️ Introduction to the Journeys
 
-<figure><img src="../.gitbook/assets/ChatGPT Image Dec 18, 2025, 10_05_03 PM.png" alt="" width="375"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 9, 2026, 03_37_16 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 These are a series of journeys, each one taking you deeper. We begin with what surrounds us: the land, the trees, the rivers, the air we breathe. Slowly, as you grow more familiar with the outer world, we turn inward, exploring the landscapes of the body, mind, and spirit.
 
@@ -37,3 +37,5 @@ While the journeys can be experienced individually, their full power unfolds thr
 \*\*\*\*
 
 To support this depth of experience, these journeys are inseparable from meditation. Meditation provides the inner stability, presence, and clarity that allow the journeys to unfold as intended. Without it, the practices remain external. With it, the journeys become transformative. The next section introduces meditation as it is used throughout this work.
+
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 18, 2025, 10_05_03 PM.png" alt="" width="375"><figcaption></figcaption></figure>

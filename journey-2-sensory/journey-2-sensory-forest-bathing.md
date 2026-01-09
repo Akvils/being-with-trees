@@ -1,6 +1,6 @@
 # 🚶 Journey 2: Sensory Forest Bathing
 
-<figure><img src="../.gitbook/assets/j2.png" alt="" width="563"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 9, 2026, 03_38_41 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 ### Introduction
 
@@ -208,3 +208,5 @@ Script: "_As we gently bring our practice to a close, we will take a few moments
 **Purpose**: To formally conclude the practice by offering reverence and thanks, sealing the experience and honouring the relationship that has been deepened.&#x20;
 
 **Script**: "_To close our circle, let us offer our gratitude. First, to the forest itself. To the trees, the earth, the air, and all the beings who have held us and shared their wisdom with us today. Thank you. ...Next, turn your gratitude inward. Thank yourself for giving yourself this time, for showing up with openness and presence. Thank you. ...Finally, to each other. Thank you for sharing this journey, for holding this quiet, sacred space together. The journey is complete. May you carry the peace of the forest with you._"
+
+<figure><img src="../.gitbook/assets/j2.png" alt="" width="375"><figcaption></figcaption></figure>

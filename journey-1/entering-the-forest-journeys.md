@@ -4,7 +4,7 @@ description: How to Start a Journey?
 
 # 🌅 Entering the Forest Journeys
 
-<p align="center"><img src="../.gitbook/assets/ChatGPT Image Dec 29, 2025, 04_45_46 PM.png" alt=""></p>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 9, 2026, 03_31_03 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 Each forest journey begins with **a conscious entry**. This marks the transition from ordinary movement into intentional practice, from the human world into the energetic world.
 
@@ -21,5 +21,7 @@ From this moment on, we move with awareness, openness, and presence. We allow th
 The journey unfolds through what we notice, what we feel, and how **we are guided** moment by moment. The walk itself becomes the practice.
 
 The first journey begins with the landscape. It is an introduction to the environment and to the practice of moving through it with awareness.
+
+<p align="center"><img src="../.gitbook/assets/ChatGPT Image Dec 29, 2025, 04_45_46 PM.png" alt="" data-size="original"></p>
 
 <p align="center"><img src="../.gitbook/assets/ChatGPT Image Dec 29, 2025, 04_45_49 PM (1).png" alt=""></p>
