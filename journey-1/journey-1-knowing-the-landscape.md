@@ -4,7 +4,9 @@ description: 'Journey One: Getting to Know Your Environment'
 
 # ⛰️ Journey 1: Knowing the Landscape
 
-<figure><img src="../.gitbook/assets/j1 Know Your Environment.png" alt="" width="563"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 9, 2026, 03_35_28 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+
+
 
 The journeys in this program unfold step by step, beginning outward with the world around us and gradually moving inward into subtler and deeper layers of experience. Each journey is an exploration, and together they form a coherent path.
 
@@ -143,3 +145,5 @@ As you rise and bring your journey to a close, know that you have now completed 
 The skills of presence and deep focus you have cultivated here are the tools you will use to go deeper.
 
 In the next journey, we will move beyond simply observing nature and begin to truly merge our senses with it. We will also learn to go deeper into meditation and awareness.<br>
+
+<figure><img src="../.gitbook/assets/j1 Know Your Environment.png" alt="" width="375"><figcaption></figcaption></figure>
