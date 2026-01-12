@@ -2,7 +2,7 @@
 description: The Secrets of the Mind and Heart
 ---
 
-# 🧭 I: Internal compass of the mind
+# 🧭 I: The Compass of the Mind
 
 <figure><img src="../.gitbook/assets/ChatGPT Image Dec 4, 2025, 10_23_15 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
@@ -10,7 +10,7 @@ Everyone is born innocent. A newborn baby is sinless, as it has not done anythin
 
 Before he was born, people turned away from the divine presence and their divine nature. They became sinful, missing the point that they have to be the embodiment of the divine.
 
-He is born innocent, but he is born in sin. The society and environment in which he is born are sinful. And that sin enters him, and he loses touch with his divine nature and contact with divinity.
+A baby is born innocent, but he is born in sin. The society and environment in which he is born are sinful. And that sin enters him, and he loses touch with his divine nature and contact with divinity.
 
 Inside every person is a compass needle. It is never still. It moves, shifts, searches, and rarely settles. But wherever it stops, that is the realm your mind connects to.
 
