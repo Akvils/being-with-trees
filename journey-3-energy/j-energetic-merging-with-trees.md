@@ -1,5 +1,7 @@
 # 🌳 J: Energetic Merging with Trees
 
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 31, 2025, 01_38_19 PM.png" alt="" width="375"><figcaption></figcaption></figure>
+
 <figure><img src="../.gitbook/assets/ChatGPT Image Jan 12, 2026, 09_04_38 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 Now that you have learned to sense and commune with trees, you are ready to move among them more freely.\
@@ -35,6 +37,4 @@ From now on, in every journey, find your tree before you begin.\
 Sit under its branches, merge with its stillness,\
 and let your meditation deepen through its strength and wisdom.\
 The trees will become your teachers, steady, ancient, and alive.
-
-<figure><img src="../.gitbook/assets/ChatGPT Image Dec 31, 2025, 01_38_19 PM.png" alt="" width="375"><figcaption></figcaption></figure>
 

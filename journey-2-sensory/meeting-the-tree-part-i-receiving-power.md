@@ -1,6 +1,6 @@
 # 🌳 Meeting the Tree Part I: Receiving Power
 
-<figure><img src="../.gitbook/assets/sittting under tree 3.jpg" alt="" width="563"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 12, 2026, 09_04_38 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 Find a tree where you can sit quietly for at least half an hour without being disturbed.\
 Oak, ash, birch, or pine are best suited for this, as they have a strong and balanced aura.\
@@ -44,3 +44,5 @@ In order to do better in nature, you should get yourself a small bag in which yo
 Now that you have found your tree and felt its presence, sit beneath it.\
 Let its stillness enter you. Breathe, relax, and begin your meditation under its protection.\
 The tree will hold you as you go inward.
+
+<figure><img src="../.gitbook/assets/sittting under tree 3.jpg" alt="" width="563"><figcaption></figcaption></figure>

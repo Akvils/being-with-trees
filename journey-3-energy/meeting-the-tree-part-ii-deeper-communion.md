@@ -1,6 +1,6 @@
 # 🌳 Meeting the Tree Part II: Deeper Communion
 
-<figure><img src="../.gitbook/assets/ChatGPT Image Nov 11, 2025, 07_24_50 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 12, 2026, 09_38_05 PM.png" alt=""><figcaption></figcaption></figure>
 
 After you have practised meeting trees for some time, something deeper may begin to happen.
 
@@ -52,3 +52,5 @@ Now that you have met your tree and felt its spirit, sit quietly under its branc
 Rest your back against its trunk and let your breath slow.\
 Allow the connection you’ve created to carry you into stillness.\
 Begin your meditation there, held in the quiet awareness of the tree.
+
+<figure><img src="../.gitbook/assets/ChatGPT Image Nov 11, 2025, 07_24_50 PM.png" alt="" width="188"><figcaption></figcaption></figure>
