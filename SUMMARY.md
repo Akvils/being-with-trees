@@ -42,14 +42,14 @@
 
 ## Journey 4 Spirit
 
-* [S: Original Sin](journey-4-spirit/s-original-sin.md)
+* [- S: Original Sin](journey-4-spirit/s-original-sin.md)
 * [🧭 I: The Compass of the Mind](journey-4-spirit/i-the-compass-of-the-mind.md)
 * [🧚 Journey Four: The Symphony of Spirit](journey-4-spirit/journey-four-the-symphony-of-spirit.md)
 * [🧘‍♂️ Meditation: The Bubble of Emotions](journey-4-spirit/meditation-the-bubble-of-emotions.md)
 
 ## Journey 5 Shadow
 
-* [I: War between the spirit of woman and man](journey-5-shadow/i-war-between-the-spirit-of-woman-and-man.md)
+* [- I: War between the spirit of woman and man](journey-5-shadow/i-war-between-the-spirit-of-woman-and-man.md)
 * [🌱 Journey Five: The Alchemist's Work](journey-5-shadow/journey-five-the-alchemists-work.md)
 * [🌪️ Process: The Energetic Cleanse](journey-5-shadow/process-the-energetic-cleanse.md)
 * [👻 Meditation: Meeting with Shadow](journey-5-shadow/meditation-meeting-with-shadow.md)

@@ -1,6 +1,6 @@
 # 🌳 J: Energetic Merging with Trees
 
-<figure><img src="../.gitbook/assets/ChatGPT Image Dec 4, 2025, 10_13_09 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 12, 2026, 09_04_38 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
 Now that you have learned to sense and commune with trees, you are ready to move among them more freely.\
 This time, do not focus on one tree alone. Walk gently through the forest and meet many of them, ten, fifteen, or however many call to you.
