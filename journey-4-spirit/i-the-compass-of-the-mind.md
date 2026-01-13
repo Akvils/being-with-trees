@@ -10,7 +10,11 @@ Everyone is born innocent. A newborn baby is sinless, as it has not done anythin
 
 Before he was born, people turned away from the divine presence and their divine nature. They became sinful, missing the point that they have to be the embodiment of the divine.
 
-A baby is born innocent, but he is born in sin. The society and environment in which he is born are sinful. And that sin enters him, and he loses touch with his divine nature and contact with divinity.
+A baby is born innocent, but he is born in sin. The society and environment in which they are born is sinful.&#x20;
+
+There is lust, anger, immorality, greed, hypnotic trance, delusion and other evils in their family, neighbourhood and environment.  Sometimes dark entities enter them. In some cases, the evil is so much that witches put such things in them.
+
+And that sin enters them, they absorb all these evils, and lose touch with their divine nature and contact with divinity.
 
 Inside every person is a compass needle. It is never still. It moves, shifts, searches, and rarely settles. But wherever it stops, that is the realm your mind connects to.
 
@@ -26,4 +30,4 @@ The needle of the mind moves in ways we cannot see. But wherever it rests, it wi
 
 True enlightenment is found only in quiet, in harmony, in a mind that has stopped scattering itself. You must steady the needle inside you. Direct it toward the divine. Keep it pointing to the One who is above all.
 
-Point the needle toward the divine presence. Always.
+Point the needle toward the divine presence so that we consciously absorb the light as we unconsciously absorbed the darkness growing up.
