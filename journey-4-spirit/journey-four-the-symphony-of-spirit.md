@@ -6,6 +6,8 @@ description: >-
 
 # 🧚 Journey Four: The Symphony of Spirit
 
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 18, 2026, 04_58_16 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+
 #### Introduction
 
 In our last journey, we learned the art of first contact, practising how to quiet our own minds to hear the profound, silent presence of a single tree.
