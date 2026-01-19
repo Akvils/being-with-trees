@@ -6,7 +6,9 @@ description: >-
 
 # 🧚 Journey Four: The Symphony of Spirit
 
-<figure><img src="../.gitbook/assets/ChatGPT Image Jan 18, 2026, 04_58_16 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+####
+
+<figure><img src="../.gitbook/assets/ChatGPT Image Jan 19, 2026, 08_30_32 PM.png" alt=""><figcaption></figcaption></figure>
 
 #### Introduction
 
