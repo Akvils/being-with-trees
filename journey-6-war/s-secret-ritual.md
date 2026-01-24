@@ -4,7 +4,7 @@ description: How a woman becomes a female and a witch
 
 # 👹 -S: Secret ritual
 
-\*Entities and the astral world\*
+#### Entities and the astral world
 
 It is quite silly and ignorant of us to only believe what we see. Now we have modern language and other dramas to justify this statement. We percieve tiny fraction of all the known frequencies. If we think of all the known frequencies to be equal to the distance between Russia and the UK, the frequencies a human being percieves is the size of a peanut.&#x20;
 
@@ -12,7 +12,7 @@ That mean there is a lot going on in the unseen world. Darkness is not just the 
 
 These entities use us to feed themselves. They manipulate our thoughts, emotionas and actions to harm us. They cause diseases, bad habits, conflicts and more.
 
-"The hill of witches\*
+#### What makes a witch
 
 When a man abuses a woman and makes her a female, she becomes angry and abuses her abuser. As she was quite helpless in ancient times, her abuser would continue to abuse her and she would become a witch.
 
@@ -20,7 +20,9 @@ Now some idiots might justify or even glorify being a witch as something mighty 
 
 A witch typically is a hateful woman who is quite powerless and vengful. She wants revenge and power. So she turns to dark forces who give her power but also take her soul. These stupid women have no idea what this trade means. They give these entities free entiry in their offsprings lives forever.
 
-The entities do their bidding, give them this power but also take their life away, torment and torture them.&#x20;
+The entities do their bidding, give them this power but also take their life away, torment and torture them for generations.
+
+#### The hill of witches
 
 Now there is a hill of witches in the Caronian's pit, in jotkrante. I went there during my second summer in lithuania and this is what happened...
 
@@ -42,6 +44,6 @@ I tried to put this in words for Narmin. I told her what I understood. That this
 
 "And this ritual happened on that hill?" she added. I said perhaps we can't be sure of this but this seems right that something is going on with men here. They're clearly possessed and women are fine and this makes sense to me.
 
-That was quite a journey and you know as with all these things, we can't be sure but men do need help with all their drinking and sucide rates. Perhaps it's the witches in women who're just leeching energy of them. Anyway, we have an explanation for this wicked behaviour.
+That was quite a journey and you know as with all these things, we can't be sure but men do need help with all their drinking and sucide rates. Perhaps it's the witches in women who're just leeching energy of them. Anyway, we have an explanation for this wicked behaviour. If it's not something more ancient and sinister.
 
 I went to the Oak Park afterwards and met some very beautiful and megistic oak's. It took me an hour to cover the ground while entering the park and 5 mins to walk back. i was quite happy that such a place exited there.
