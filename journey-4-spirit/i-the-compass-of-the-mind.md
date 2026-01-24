@@ -6,6 +6,8 @@ description: The Secrets of the Mind and Heart
 
 <figure><img src="../.gitbook/assets/ChatGPT Image Dec 4, 2025, 10_23_15 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
+#### Original Sin
+
 Everyone is born innocent. A newborn baby is sinless, as it has not done anything.
 
 Before he was born, people turned away from the divine presence and their divine nature. They became sinful, missing the point that they have to be the embodiment of the divine.
@@ -15,6 +17,8 @@ A baby is born innocent, but he is born in sin. The society and environment in w
 There is lust, anger, immorality, greed, hypnotic trance, delusion and other evils in their family, neighbourhood and environment.  Sometimes dark entities enter them. In some cases, the evil is so much that witches put such things in them.
 
 And that sin enters them, they absorb all these evils, and lose touch with their divine nature and contact with divinity.
+
+#### The Internal Compass
 
 Inside every person is a compass needle. It is never still. It moves, shifts, searches, and rarely settles. But wherever it stops, that is the realm your mind connects to.
 
