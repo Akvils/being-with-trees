@@ -49,7 +49,7 @@
 
 ## Journey 5 Shadow
 
-* [- I: War between the spirit of woman and man](journey-5-shadow/i-war-between-the-spirit-of-woman-and-man.md)
+* [- I: Ego and Shadow](journey-5-shadow/i-ego-and-shadow.md)
 * [🌱 Journey Five: The Alchemist's Work](journey-5-shadow/journey-five-the-alchemists-work.md)
 * [🌪️ Process: The Energetic Cleanse](journey-5-shadow/process-the-energetic-cleanse.md)
 * [👻 Meditation: Meeting with Shadow](journey-5-shadow/meditation-meeting-with-shadow.md)
