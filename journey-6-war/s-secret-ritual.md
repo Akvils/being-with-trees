@@ -44,6 +44,8 @@ I tried to put this in words for Narmin. I told her what I understood. That this
 
 "And this ritual happened on that hill?" she added. I said perhaps we can't be sure of this but this seems right that something is going on with men here. They're clearly possessed and women are fine and this makes sense to me.
 
-That was quite a journey and you know as with all these things, we can't be sure but men do need help with all their drinking and sucide rates. Perhaps it's the witches in women who're just leeching energy of them. Anyway, we have an explanation for this wicked behaviour. If it's not something more ancient and sinister.
+That was quite a journey and you know as with all these things, we can't be sure but men do need help with all their drinking and suicide rates. Perhaps it's the witches in women who're just leeching energy from them. Anyway, we have an explanation for this wicked behaviour. If it's not something more ancient and sinister.
+
+Anyway, almost everyone indeed needs an exorcism, and we don't have many, if any, good exorcists these days. Whatever the story of their past be. If we're not possessed by the divine spirit and in protection of light, we are possessed by darkness and being used up as food by certain entities.
 
 I went to the Oak Park afterwards and met some very beautiful and megistic oak's. It took me an hour to cover the ground while entering the park and 5 mins to walk back. i was quite happy that such a place exited there.
