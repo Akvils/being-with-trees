@@ -1,4 +1,8 @@
-# 🕊️ Being with Trees:  Journeys to Merge with Nature
+---
+description: Journeys to Merge with Nature and Beyond
+---
+
+# 🕊️ Being with Trees
 
 <figure><img src=".gitbook/assets/Being with trees cover.jpg" alt="Being with trees cover"><figcaption></figcaption></figure>
 

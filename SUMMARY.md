@@ -1,7 +1,7 @@
 # Table of contents
 
-* [🕊️ Being with Trees:  Journeys to Merge with Nature](README.md)
-* [🦅 About the Compailer](about-the-compailer.md)
+* [🕊️ Being with Trees](README.md)
+* [🦅 About the Compiler](about-the-compiler.md)
 * [🌹 Acknowledgement](acknowledgement.md)
 * [✨ Prologue](prologue.md)
 
