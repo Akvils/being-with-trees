@@ -73,10 +73,11 @@
 * [💌 The Story of the Door](journey-8-dissolve/the-story-of-the-door.md)
 * [🌊 Journey Eight: Dissolution](journey-8-dissolve/journey-eight-dissolution.md)
 * [🌌 Meditation: Space Awareness](journey-8-dissolve/meditation-space-awareness.md)
-* [🌈 Synchronicities](journey-8-dissolve/synchronicities.md)
+* [🕉️ Remember I AM](journey-8-dissolve/remember-i-am.md)
 
 ## Journey forward: Ascension
 
+* [🌈 Synchronicities](journey-forward-ascension/synchronicities.md)
 * [💫 Return](journey-forward-ascension/return.md)
 * [J: Ascension Journey](journey-forward-ascension/j-ascension-journey.md)
 * [🏰 Epilogue: The Light That Governs](journey-forward-ascension/epilogue-the-light-that-governs.md)
