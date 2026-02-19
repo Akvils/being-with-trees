@@ -73,7 +73,7 @@
 * [💌 The Story of the Door](journey-8-dissolve/the-story-of-the-door.md)
 * [🌊 Journey Eight: Dissolution](journey-8-dissolve/journey-eight-dissolution.md)
 * [🌌 Meditation: Space Awareness](journey-8-dissolve/meditation-space-awareness.md)
-* [🕉️ Remember I AM](journey-8-dissolve/remember-i-am.md)
+* [🕉️ Self Rememberance](journey-8-dissolve/self-rememberance.md)
 
 ## Journey forward: Ascension
 
