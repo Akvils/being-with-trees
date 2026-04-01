@@ -1,0 +1,8 @@
+# 😆 Intensional Suffering
+
+
+
+
+
+### Pain awareness
+

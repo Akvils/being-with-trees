@@ -11,6 +11,7 @@
 * [👁️ The Story of Disconnection](introduction/the-story-of-disconnection.md)
 * [🕊️ Introduction to the Journeys](introduction/introduction-to-the-journeys.md)
 * [🪔 Introduction to the Meditations](introduction/introduction-to-the-meditations.md)
+* [☝️ Introduction to self](introduction/introduction-to-self.md)
 
 ## Journey 0 Cage
 
@@ -46,6 +47,7 @@
 * [🧭 I: The Compass of the Mind](journey-4-spirit/i-the-compass-of-the-mind.md)
 * [🧚 Journey Four: The Symphony of Spirit](journey-4-spirit/journey-four-the-symphony-of-spirit.md)
 * [🧘‍♂️ Meditation: The Bubble of Emotions](journey-4-spirit/meditation-the-bubble-of-emotions.md)
+* [😣 Non expresion of negative emotions](journey-4-spirit/non-expresion-of-negative-emotions.md)
 
 ## Journey 5 Shadow
 
@@ -60,6 +62,7 @@
 * [🏡 The Burning House](journey-6-war/the-burning-house.md)
 * [👺 Process: Starving the Parasites](journey-6-war/process-starving-the-parasites.md)
 * [🧘‍♂️ The Architect Meditation: Journey to Sovereignty](journey-6-war/the-architect-meditation-journey-to-sovereignty.md)
+* [😆 Intensional Suffering](journey-6-war/intensional-suffering.md)
 
 ## Journey 7 Love
 
