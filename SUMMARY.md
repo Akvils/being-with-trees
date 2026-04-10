@@ -33,6 +33,7 @@
 * [🚶 Journey 2: Sensory Forest Bathing](journey-2-sensory/journey-2-sensory-forest-bathing.md)
 * [🌳 Meeting the Tree Part I: Receiving Power](journey-2-sensory/meeting-the-tree-part-i-receiving-power.md)
 * [🧘‍♂️ Meditation: The Tree of Awareness](journey-2-sensory/meditation-the-tree-of-awareness.md)
+* [🕉️ Self Rememberance](journey-2-sensory/self-rememberance.md)
 
 ## Journey 3 Energy
 
@@ -77,7 +78,7 @@
 * [💌 The Story of the Door](journey-8-dissolve/the-story-of-the-door.md)
 * [🌊 Journey Eight: Dissolution](journey-8-dissolve/journey-eight-dissolution.md)
 * [🌌 Meditation: Space Awareness](journey-8-dissolve/meditation-space-awareness.md)
-* [🕉️ Self Rememberance](journey-8-dissolve/self-rememberance.md)
+* [🕉️ Remember That](journey-8-dissolve/remember-that.md)
 
 ## Journey forward: Ascension
 
