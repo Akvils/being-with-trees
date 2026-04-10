@@ -40,6 +40,7 @@
 * [🌳 J: Energetic Merging with Trees](journey-3-energy/j-energetic-merging-with-trees.md)
 * [🌳 Meeting the Tree Part II: Deeper Communion](journey-3-energy/meeting-the-tree-part-ii-deeper-communion.md)
 * [🧘‍♂️ Meditation: The Undisturbed Mind](journey-3-energy/meditation-the-undisturbed-mind.md)
+* [😶‍🌫️ Cloud Spotting](journey-3-energy/cloud-spotting.md)
 
 ## Journey 4 Spirit
 
