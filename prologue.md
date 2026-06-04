@@ -12,7 +12,7 @@
 
 #### Invitation
 
-This is an invitation to blend with nature, with creation and existence, so that you become a part of it, a part of the whole artwork. For nature is his artwork, and we're returning to That.
+This is an invitation to blend back with nature, with creation and existence, so that you become a part of it, a part of the whole artwork. For nature is his artwork, and we're returning to that.
 
 I was at Gaia Gathering 2025, watching a scene and talking to a guy. I told him what I was seeing and asked if he could see it the same way. I said that I’m a sucker for beauty and visuals. Even the place I was standing in wasn’t random.
 
