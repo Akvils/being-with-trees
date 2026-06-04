@@ -2,6 +2,8 @@
 
 <figure><img src="../.gitbook/assets/ChatGPT Image Jan 12, 2026, 09_04_38 PM.png" alt="" width="563"><figcaption></figcaption></figure>
 
+{% file src="../.gitbook/assets/generated_video_3549f00c-f34e-4a1b-a6b8-ce0bee80a72b.mp4" %}
+
 Find a tree where you can sit quietly for at least half an hour without being disturbed.\
 Oak, ash, birch, or pine are best suited for this, as they have a strong and balanced aura.\
 Sensing the tree’s aura and receiving power from it will help you strengthen your own.
