@@ -1,3 +1,9 @@
+---
+description: >-
+  "Addiction is often a misdirected search for wholeness, meaning, or union with
+  the divine." - Carl Jung
+---
+
 # 💌 The Story of the Door
 
 A man, who had spent his life in search of the Beloved, at last arrived at the door of his destination. With a heart full of hope and the fire of longing, he knocked.
