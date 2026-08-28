@@ -1,6 +1,24 @@
 # 🏰 Epilogue: The Light That Governs
 
-<figure><img src="../.gitbook/assets/IMG_7914.jpg" alt="" width="340"><figcaption></figcaption></figure>
+> Blessed is the one\
+> &#x20;   who does not walk in step with the wicked\
+> or stand in the way that sinners take\
+> &#x20;   or sit in the company of mockers,\
+> but whose delight is in the law of the Lord,\
+> &#x20;   and who meditates on his law day and night.\
+> That person is like a tree planted by streams of water,\
+> &#x20;   which yields its fruit in season\
+> and whose leaf does not wither\
+> &#x20;   whatever they do prospers.\
+> \
+> Not so the wicked!\
+> &#x20;   They are like chaff\
+> &#x20;   that the wind blows away.\
+> Therefore the wicked will not stand in the judgment,\
+> &#x20;   nor sinners in the assembly of the righteous.\
+> \
+> For the Lord watches over the way of the righteous,\
+> &#x20;   but the way of the wicked leads to destruction.
 
 The governance of the world is in the hands of archonic forces. In many traditions, they are rightly named demonic, not as myth, but as modes of consciousness rooted in fear, domination, fragmentation, and unconsciousness. These forces do not rule only through institutions; they rule wherever humans remain identified solely with body and mind.
 
