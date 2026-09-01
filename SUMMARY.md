@@ -70,7 +70,7 @@
 
 * [💌 S: A Tree and a Boy](journey-7-love/s-a-tree-and-a-boy/README.md)
   * [The Woman Who Stayed with the Tree](journey-7-love/s-a-tree-and-a-boy/the-woman-who-stayed-with-the-tree.md)
-* [I: Lust of love, just water](journey-7-love/i-lust-of-love-just-water.md)
+* [I: Being in love. Lust of love, just water](journey-7-love/i-being-in-love.-lust-of-love-just-water.md)
 * [💖 Journey Seven: The Universal Embrace](journey-7-love/journey-seven-the-universal-embrace.md)
 
 ## Journey 8 Dissolve
