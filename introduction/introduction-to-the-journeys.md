@@ -52,8 +52,6 @@ Each journey builds on the previous one. Early journeys establish grounding, pre
 
 While the journeys can be experienced individually, their full power unfolds through continuity. Repetition, familiarity, and sustained engagement allow the practices to mature organically. What begins as a guided structure gradually becomes intuitive knowing, where the forest itself becomes the teacher.
 
-\*\*\*
-
-To support this depth of experience, these journeys are inseparable from meditation. Meditation provides the inner stability, presence, and clarity that allow the journeys to unfold as intended. Without it, the practices remain external. With it, the journeys become transformative. The next section introduces meditation as it is used throughout this work.
+To support this depth of experience, these journeys are inseparable from meditation processes. Meditation provides the inner stability, presence, and clarity that allow the journeys to unfold as intended. Without it, the practices remain external. With it, the journeys become transformative. The next section introduces meditation as it is used throughout this work.
 
 <figure><img src="../.gitbook/assets/ChatGPT Image Dec 18, 2025, 10_05_03 PM.png" alt="" width="375"><figcaption></figcaption></figure>
