@@ -12,19 +12,19 @@
 
 #### Invitation
 
-This is an invitation to blend back with nature, with creation and existence, so that you become a part of it, a part of the whole artwork. For nature is his artwork, and we're returning to that.
+This is an invitation to blend back with nature, with creation and existence, so that you become a part of it again, a part of the whole original artwork. For nature is his artwork, and we're returning to that.
 
-I was at Gaia Gathering 2025, watching a scene and talking to a guy. I told him what I was seeing and asked if he could see it the same way. I said that I’m a sucker for beauty and visuals. Even the place I was standing in wasn’t random.
+In the summer of 2025, I was at Gaia Gathering, looking at the landscape while talking to someone. I told him what I was seeing and asked if he could see it as well. I said that I’m a sucker for beauty and good visuals. Even the place I was standing in wasn’t random.
 
 I was looking at the landscape. In front of me was a small spruce tree. In the background, there was a river, an island, and a hill. In the river, people had created a large white lotus flower with four candles in it. On the hill, there was a bonfire, and people stood around it like the petals of another lotus, a human flower, moving to the psytrance music playing in the background.
 
-From where I stood, behind the small spruce, the first lotus flower on the river was on the second golden point of the first third of the frame and the human flower was on the first golden point in the second third. Together with the vast sky above, and the movement of light, wind, and atmosphere, it formed a perfect composition, alive, dynamic, and complete.
+From where I stood, behind the small spruce, the first lotus flower on the river was on the second golden point of the first third of the frame, and the human flower was on the first golden point in the second third. Together with the vast sky above and the movement of light, wind, and atmosphere, it formed a perfect composition, alive, dynamic, and complete.
 
 As we spoke in English, I told him: God created the base landscape, and we added the two flowers. Humans made the artwork in the river and formed the second one by the fire. God animated the world, the wind, the light, the movement, and we added the music, because we could not hear His.
 
-They say that when God finished creation, He stepped back and saw that it was good. I do the same when I finish a painting: I step back, look at it, and feel joy. I return to it again and again.
+They say that when God was done creating, he stepped back and saw that it was good. I do the same when I finish a painting: I step back, look at it, and feel joy. I return to it again and again. Just to look and enjoy.
 
-Me looking that this scene right now makes me a co-creator with god. I feel like god, witnessing this landscape that we co-created with him. I invited him to watch it with me as I was describing it to him.&#x20;
+Me looking at this scene right now makes me a co-creator with god. I feel like god, witnessing this landscape that we co-created with him. I invited him to watch it with me as I was describing it to him.&#x20;
 
 And there was a third presence with us, the one who created the foundation of it all. Always there. The witness behind everything.
 
@@ -42,12 +42,14 @@ Blend into form, and experience the formless.
 
 #### Principle
 
-Nature is the creation of source consciousness; the power of the all flows through it.\
+Nature is the creation of the All, source consciousness; the power of the All flows through it.\
+\
 When we connect with it, we open ourselves to light. As we open, our capacity to receive light increases.
 
 As we receive more light, that capacity expands even further, and we can receive more light.
 
-This becomes a spiral, receiving light and increasing our ability to receive it.\
+This becomes an upward spiral, receiving light and increasing our ability to receive it.\
+\
 This is the purpose of this journey.
 
 With time and practice, we begin to perceive consciousness beyond form.\
