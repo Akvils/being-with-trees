@@ -7,9 +7,13 @@
 
 
 
-In all these journeys, you’ll learn exercises for the mind and consciousness, usually called meditation. This word, meditation, has been damaged by culture. It is confusing and mishandled. There are essentially two types of meditation. One type is what most of the mediations are. They put you in a hypnotic trance. The other type, the right one, wakes you up. This is what we will learn in this program.
+IIn all these journeys, you’ll learn exercises for the mind and consciousness, usually called meditation. This word, meditation, has been damaged by culture. It is confusing and mishandled. There are essentially two types of meditation. One type is what most of the meditations are. They put you in a hypnotic trance. The other type, the right one, wakes you up.&#x20;
 
-The complete journey you’re about to embark upon is for sincere and committed seekers, as it is unwise not to practice meditation once you have started.
+People usually are in a state of hypnotic trance due to stresses of life among other things. It causes them to do stupid and evil things. Meditations that put people in trance can be used to programme the subconscious but it doesn’t get us out of the perpetual programming that is going on got generations and is happening to the masses that leads to the decline of the human spirit.
+
+Meditations that lets us become conscious, gets us out of this hypnotic trance. It also activates conscious, the silent inner voice that knows right from wrong and leads us righteousness and makes us do the right things. This kind of meditation is what we will learn in this program.
+
+The complete journey you’re about to embark upon is for sincere and committed seekers, as it is unwise to not practice meditation once you have started.
 
 What you’re about to learn is the core, the essence of it all. Gradually, step by step. Once you’ve completed this journey, you may become unplugged and potentially free. That is a bold claim, without scientific evidence, at least right now. We only show the path; you have to walk it.
 
