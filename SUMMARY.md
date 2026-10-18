@@ -11,7 +11,7 @@
 * [👁️ The Story of Disconnection](introduction/the-story-of-disconnection.md)
 * [🕊️ Introduction to the Journeys](introduction/introduction-to-the-journeys.md)
 * [🪔 Introduction to the Meditations](introduction/introduction-to-the-meditations.md)
-* [☝️ Introduction to self](introduction/introduction-to-self.md)
+* [☝️ Introduction to Self](introduction/introduction-to-self.md)
 
 ## Journey 0 Cage
 
