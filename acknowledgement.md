@@ -1,6 +1,6 @@
 # 🌹 Acknowledgement
 
-A gift to the Enlightened ones, Lizdeika and Čiurlionis.
+A gift to the Enlightened ones, Lord Almighty, Lizdeika and Čiurlionis.
 
 Deep gratitude to Varuna and Perkūnas,
 
