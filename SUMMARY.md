@@ -49,7 +49,7 @@
 * [🧭 I: The Compass of the Mind](journey-4-spirit/i-the-compass-of-the-mind.md)
 * [🧚 Journey Four: The Symphony of Spirit](journey-4-spirit/journey-four-the-symphony-of-spirit.md)
 * [🧘‍♂️ Meditation: The Bubble of Emotions](journey-4-spirit/meditation-the-bubble-of-emotions.md)
-* [😣 Non expresion of negative emotions](journey-4-spirit/non-expresion-of-negative-emotions.md)
+* [😣 Non-expression of negative emotions](journey-4-spirit/non-expression-of-negative-emotions.md)
 
 ## Journey 5 Shadow
 
