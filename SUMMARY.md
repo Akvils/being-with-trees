@@ -33,7 +33,7 @@
 * [🚶 Journey 2: Sensory Forest Bathing](journey-2-sensory/journey-2-sensory-forest-bathing.md)
 * [🌳 Meeting the Tree Part I: Receiving Power](journey-2-sensory/meeting-the-tree-part-i-receiving-power.md)
 * [🧘‍♂️ Meditation: The Tree of Awareness](journey-2-sensory/meditation-the-tree-of-awareness.md)
-* [🕉️ Self Rememberance](journey-2-sensory/self-rememberance.md)
+* [🕉️ Self Remembrance](journey-2-sensory/self-remembrance.md)
 
 ## Journey 3 Energy
 
