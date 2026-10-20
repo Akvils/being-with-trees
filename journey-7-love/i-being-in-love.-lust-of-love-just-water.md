@@ -1,5 +1,10 @@
 # I: Being in love. Lust of love, just water
 
+> _"Why would I choose cosmic energy over Katara_? How could it be a bad thing that I feel an attachment to her? Three chakras ago, that was a good thing."\
+> \- Aang, Avatar: The Last Airbender, Season 2 episode 19 "The Guru"&#x20;
+
+_Meaning: What is the knowledge of the universe and existence compared to a woman's love?_
+
 ## Love for the Land
 
 Modern romance has taught us to seek in a partner what our ancestors found in the land.
