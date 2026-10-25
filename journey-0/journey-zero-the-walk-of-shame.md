@@ -24,6 +24,7 @@ As you walk, turn your awareness inward. Notice your own body's response to this
 
 * **Meet Your Anxiety**: As you move through these fields of energy, specifically invite yourself to notice the feeling of anxiety within your own body. Where does it make its home in you? Is it a knot in your stomach? A frantic buzzing in your mind? A cold dread that seeps into your bones? Recognize this anxiety not as a personal failing, but as an honest and intelligent response from your body to an unhealthy environment. It is a compass needle spinning wildly, telling you that you are in a place of disharmony.
 * **Feel Your Body's Armour**: Notice how your breath changes when you are in a crowd, does it become shallow? Feel your shoulders, do they tense up, creating a shield? Feel your heart, does it contract or close down to protect itself?
+* **Drain and exhaustion**: The noise of the society sucks our energy. Everytime you come back from the business of the society you'll feel drainned and exahused as if your energy has been sucked out.
 * **Feel the Estrangement**: Acknowledge any feelings of sadness or grief that arise. This is what your text calls a "walk of shame", not as a punishment, but as a clear and honest recognition of how things are, of how far our collective world has strayed from innocence and natural harmony.
 
 Do not resist these feelings. Do not build a wall against them. For this first journey, your only task is to see and to feel what is truly there.
