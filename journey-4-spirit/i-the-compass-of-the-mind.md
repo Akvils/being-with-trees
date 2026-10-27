@@ -4,7 +4,7 @@ description: The Secrets of the Mind and Heart
 
 # 🧭 I: The Compass of the Mind
 
-<figure><img src="../.gitbook/assets/ChatGPT Image Dec 4, 2025, 10_23_15 PM.png" alt="" width="563"><figcaption></figcaption></figure>
+<figure><img src="../.gitbook/assets/image (5).png" alt=""><figcaption></figcaption></figure>
 
 #### Original Sin
 
@@ -55,3 +55,5 @@ The needle of the mind moves in ways we cannot see. But wherever it rests, it wi
 True enlightenment is found only in quiet, in harmony, in a mind that has stopped scattering itself. You must steady the needle inside you. Direct it toward the divine. Keep it pointing to the One who is above all.
 
 Point the needle toward the divine presence so that we consciously absorb the light as we unconsciously absorbed the darkness growing up.
+
+<figure><img src="../.gitbook/assets/ChatGPT Image Dec 4, 2025, 10_23_15 PM.png" alt=""><figcaption></figcaption></figure>

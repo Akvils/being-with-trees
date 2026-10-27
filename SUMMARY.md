@@ -45,7 +45,6 @@
 
 ## Journey 4 Spirit
 
-* [- S: Original Sin](journey-4-spirit/s-original-sin.md)
 * [🧭 I: The Compass of the Mind](journey-4-spirit/i-the-compass-of-the-mind.md)
 * [🧚 Journey Four: The Symphony of Spirit](journey-4-spirit/journey-four-the-symphony-of-spirit.md)
 * [🧘‍♂️ Meditation: The Bubble of Emotions](journey-4-spirit/meditation-the-bubble-of-emotions.md)
